@@ -2,49 +2,45 @@
 templateKey: index-page
 title: Learn by playing
 image: /img/home-jumbotron.jpg
-heading: Great coffee with a conscience
-subheading: Support sustainable farming while enjoying a cup
+heading: delete
+subheading: delete
 mainpitch:
-  title: Why Kaldi
-  description: >
-    Kaldi is the coffee store for everyone who believes that great coffee
-    shouldn't just taste good, it should do good too. We source all of our beans
-    directly from small scale sustainable farmers and make sure part of the
-    profits are reinvested in their communities.
-description: Kaldi is the ultimate spot for coffee lovers who want to learn
-  about their java’s origin and support the farmers that grew it. We take coffee
-  production, roasting and brewing seriously and we’re glad to pass that
-  knowledge to anyone.
+  title: delete
+  description: delete
+description: delete
 intro:
   blurbs:
-    - image: /img/coffee.png
-      text: >
-        We sell green and roasted coffee beans that are sourced directly from
-        independent farmers and farm cooperatives. We’re proud to offer a
-        variety of coffee beans grown with great care for the environment and
-        local communities. Check our post or contact us directly for current
-        availability.
-    - image: /img/coffee-gear.png
-      text: >
-        We offer a small, but carefully curated selection of brewing gear and
-        tools for every taste and experience level. No matter if you roast your
-        own beans or just bought your first french press, you’ll find a gadget
-        to fall in love with in our shop.
-    - image: /img/tutorials.png
-      text: >
-        Love a great cup of coffee, but never knew how to make one? Bought a
-        fancy new Chemex but have no clue how to use it? Don't worry, we’re here
-        to help. You can schedule a custom 1-on-1 consultation with our baristas
-        to learn anything you want to know about coffee roasting and brewing.
-        Email us or call the store for details.
-    - image: /img/meeting-space.png
-      text: >
-        We believe that good coffee has the power to bring people together.
-        That’s why we decided to turn a corner of our shop into a cozy meeting
-        space where you can hang out with fellow coffee lovers and learn about
-        coffee making techniques. All of the artwork on display there is for
-        sale. The full price you pay goes to the artist.
-  heading: What we offer
+    - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg
+      text: |-
+        *Make tummy time fun 
+        *The many uses of mobiles
+        *Study faces
+        *The great outdoors
+        *Baby Monet
+        *Customize your play gym . . . and many more ideas to try!
+    - image: /img/screen-shot-2022-09-16-at-9.38.54-am.png
+      text: |
+        *Breakfast with mommy (or daddy!) 
+        *Chef baby
+        *Bubble time!
+        *Dance to the music
+        *Get those hands moving!
+        *It's story time
+        *Aren't baby animals cute?! . . . and many more ideas to try!
+    - image: /img/img_9276.jpeg
+      text: |-
+        *Parts of the body 
+        *Hide and seek
+        *Catch
+        *Wooden ball pick up
+        *Mirror, mirror on the wall
+        *Get creative with art projects
+        *Spice it up!
+        *Sensory boxes
+        *Fun with measuring cups . . . and many more ideas to try!
+    - image: /img/img_9320.jpeg
+      text: More activities for older babies coming soon!
+  heading: What we offer!!!!!!!!!!!!!!!!
   description: >
     Kaldi is the ultimate spot for coffee lovers who want to learn about their
     java’s origin and support the farmers that grew it. We take coffee
