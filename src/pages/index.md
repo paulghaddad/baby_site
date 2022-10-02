@@ -3,7 +3,7 @@ templateKey: index-page
 title: Learn by playing
 image: /img/home-jumbotron.jpg
 heading: delete
-subheading: delete
+subheading: Activities, books, toys
 mainpitch:
   title: delete
   description: delete
