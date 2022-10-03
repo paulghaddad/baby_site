@@ -1,33 +1,75 @@
 ---
 templateKey: blog-post
-title: Making sense of the SCAA’s new Flavor Wheel
-date: 2016-12-17T15:04:10.000Z
+title: A Food Education
+date: 2016-09-20T14:04:00.000Z
+description: Eating is more than just nourishment. It’s also an experience.
 featuredpost: false
-featuredimage: /img/flavor_wheel.jpg
-description: The Coffee Taster’s Flavor Wheel, the official resource used by coffee tasters, has been revised for the first time this year.
+featuredimage: /img/img_9183.jpeg
 tags:
-  - flavor
-  - tasting
+  - food
 ---
-![flavor wheel](/img/flavor_wheel.jpg)
+My son, Hayden, eats solids with gusto -- including fruits and veggies. Black bean chili, lentil soup, and garlic chicken are among his favorites. 
 
-The SCAA updated the wheel to reflect the finer nuances needed to describe flavors more precisely. The new descriptions are more detailed and hence allow cuppers to distinguish between more flavors.
 
-While this is going to be a big change for professional coffee tasters, it means a lot to you as a consumer as well. We’ll explain how the wheel came to be, how pros use it and what the flavors actually mean.
 
-## What the updates mean to you
+I’m convinced it’s because of the attitude my husband and I take toward eating. Instead of treating it as another task, we think of mealtime as a learning opportunity. 
 
-The Specialty Coffee Association of America (SCAA), founded in 1982, is a non-profit trade organization for the specialty coffee industry. With members located in more than 40 countries, SCAA represents every segment of the specialty coffee industry, including:
 
-* producers
-* roasters
-* importers/exporters
-* retailers
-* manufacturers
-* baristas
 
-For over 30 years, SCAA has been dedicated to creating a vibrant specialty coffee community by recognizing, developing and promoting specialty coffee. SCAA sets and maintains quality standards for the industry, conducts market research, and provides education, training, resources, and business services for its members.
+Of course we want to model good table manners. But that’s just the start. We also want mealtime to be an educational food experience.
 
-Coffee cupping, or coffee tasting, is the practice of observing the tastes and aromas of brewed coffee. It is a professional practice but can be done informally by anyone or by professionals known as "Q Graders". A standard coffee cupping procedure involves deeply sniffing the coffee, then loudly slurping the coffee so it spreads to the back of the tongue.
 
-The coffee taster attempts to measure aspects of the coffee's taste, specifically the body (the texture or mouthfeel, such as oiliness), sweetness, acidity (a sharp and tangy feeling, like when biting into an orange), flavour (the characters in the cup), and aftertaste. Since coffee beans embody telltale flavours from the region where they were grown, cuppers may attempt to identify the coffee's origin.
+
+When I recently introduced cauliflower to Hayden, I dipped a spoon into the puree and let him smell it. He took a small taste and paused. 
+
+
+
+After a moment, he smiled and lifted his arms up and down excitedly. He wanted more. 
+
+
+
+As the meal went on, I spoke about the taste, texture, and color of the cauliflower and how it was prepared. I asked Hayden questions, and waited for him to babble a response back. I gauged his body language, knowing when he’s had enough or wanted more.
+
+
+
+And this is how mealtime goes. 
+
+
+
+**My aim is to make mealtime a multi-sensorial experience**. Smell the food. Taste it. Hear and talk about it. 
+
+
+
+The food experience continues outside of mealtimes, too. Hayden and I spend a lot of time in the kitchen. We’ve been doing so for months -- long before he was eating solids. 
+
+
+
+We’ll sit at the kitchen table and explore different kitchen objects, like pots, pans, spatulas, or a whisk (Hayden’s favorite). We’ll also explore spices and herbs. He loves the smell of ground cinnamon. 
+
+
+
+Exploring fruits and veggies is one of our favorite kitchen activities. We’ll explore apples, limes, oranges, peppers, and carrots. After he touches a lemon or lime, I’ll cut it in half and he’ll smell it. Sometimes I’ll take a bite or two of an apple, and then the giggles begin. Hayden loves to hear the crunch of an apple. 
+
+
+
+Now that Hayden can sit in his high chair, he “helps” me prepare food like his banana puree. He’s also “helped” me make brownies and pumpkin bread. 
+
+
+
+**He’s an active participant, not a passive observer.** 
+
+
+
+I’ll fill a measuring cup with flour. He’ll grab the handle and we’ll pour the flour into the mixing bowl. Once the batter is ready, he’ll grab the spatula and together we’ll mix the batter together.
+
+
+
+Although he’s not eating baked goods yet, he seems to enjoy the process. He’s building useful skills, like grabbing and pouring, in a real world context. He’s also learning that bowls and measuring cups aren't just things in the world; they have a purpose. 
+
+
+
+**The more I share about food and involve him, the more he seems to love food and mealtime in general.** 
+
+
+
+Mealtime isn’t something we dread. Rather, it’s a lot of fun -- for baby and mommy.
