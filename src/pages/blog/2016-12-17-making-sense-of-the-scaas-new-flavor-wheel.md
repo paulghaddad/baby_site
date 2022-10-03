@@ -12,7 +12,7 @@ My son, Hayden, eats solids with gusto -- including fruits and veggies. Black be
 
 I’m convinced it’s because of the attitude my husband and I take toward eating. Instead of treating it as another task, we think of mealtime as a learning opportunity. 
 
-Of course we want to model good table manners. But that’s just the start. We also want mealtime to be an educational food experience.
+Of course we want to model good table manners. But that’s just the start. **We also want mealtime to be an educational food experience**.
 
 When I recently introduced cauliflower to Hayden, I dipped a spoon into the puree and let him smell it. He took a small taste and paused. 
 
@@ -26,9 +26,13 @@ And this is how mealtime goes. 
 
 The food experience continues outside of mealtimes, too. Hayden and I spend a lot of time in the kitchen. We’ve been doing so for months -- long before he was eating solids. 
 
-![spices](/img/screen-shot-2022-10-03-at-4.41.31-pm.png)
+![spices](/img/img_9253.jpeg)
 
-We’ll sit at the kitchen table and explore different kitchen objects, like pots, pans, spatulas, or a whisk (Hayden’s favorite). We’ll also explore spices and herbs. He loves the smell of ground cinnamon. 
+We’ll sit at the kitchen table and explore different kitchen objects, like pots, pans, spatulas, or a whisk (Hayden’s favorite). 
+
+![](/img/screen-shot-2022-10-03-at-4.41.31-pm.png)
+
+We’ll also explore spices and herbs. He loves the smell of ground cinnamon. 
 
 ![](/img/img_9252.jpeg)
 
