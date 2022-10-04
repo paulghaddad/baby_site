@@ -1,8 +1,10 @@
 ---
 templateKey: activities-page
 path: /activities
-title: Activities
+title: "Play to Learn "
 ---
+## Activities 0-12 Weeks
+
 ### Make tummy time fun!
 
 One day baby will love being on his tummy. Until that day comes, make tummy time fun and interesting with the ideas below.
@@ -282,3 +284,63 @@ This activity is especially fun now that he’s older and much more talkative; h
 [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
 [N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
+
+
+
+## Activities 3-4 Months
+
+### \
+Breakfast with mommy (or daddy)
+
+After I fed my son, Hayden, in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
+
+
+
+Hayden would sit in his [BabyBjörn bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=), which was placed near the kitchen table, as I
+
+showed -- **and involved** -- him in the breakfast preparation.
+
+
+
+I’d open the bag of frozen blueberries and bring them over to him to let him take a look. 
+
+
+
+Then, I’d go over to the kitchen cupboard and pull out a bowl. I’d bring it over to him and let him explore it with me. He loved to touch it, as I’d talk about the color, texture, and weight. I’d do the same thing with a spoon, placemat, and napkin, along with any other breakfast items. 
+
+
+
+**The process mesmerized him**. 
+
+
+
+He’d watch carefully as I’d pour some cereal into a bowl and sprinkle a few berries on top. I’d kneel down to his level so he could see and hear me pour orange juice into my glass.
+
+
+
+Once breakfast was made, I’d sit at the table and talk with Hayden as I ate. 
+
+
+
+I’d ask him a question and then pause as I’d take a bite and wait for him to respond with a coo, grunt, or squeal. 
+
+
+
+This would go on until I finished whatever I was eating. Then, we’d go play. The entire process only took 10 to 15 minutes, but the benefits were many:
+
+* **Explore real world kitchen objects and put them to use in a real way**. A bowl, for example, isn’t just another thing in the world; we can use it to hold food. 
+* **Model eating and table manners** -- skills that’ll pay dividends when baby begins eating in the near future.  
+* **Teach conversational skills**. Ask a question. Pause, and let baby respond, while you take a bite. 
+
+
+
+Above all, “breakfast with mommy” is a way to teach patience. 
+
+
+
+At first, Haden would only last a few minutes in his bouncer. He was anxious to get up and play. But over time his patience grew, and so did his intrigue with the entire breakfast process, both preparation and cleanup.
+
+**\
+Suggested Item**:
+
+[Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
