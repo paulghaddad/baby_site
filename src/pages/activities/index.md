@@ -536,3 +536,176 @@ A mirror is also great to use during tummy time. Prop a mirror up so baby can st
 
 
 ### Bubble time!
+
+Bubbles are such a thrill for baby!  
+
+
+
+Since they’re such a hit, I keep bubbles easily accessible: in the car, stroller, garage, and back porch. I like [Bubble Tree’s bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1) because they come in a pack of four, are non-toxic, and the bubble solution is in an aluminum bottle.
+
+
+
+**Suggested item**:
+
+[Bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
+
+
+
+
+
+### Get those hands moving
+
+Want to get baby some practice using their hands? Give these ideas a try.
+
+
+
+Put a cloth, like a washcloth, on baby’s foot, and he’ll work hard to pull it off. Once he’s mastered this, you do the same game with a small oven mit: stick the mit on his foot and baby will pull it off. 
+
+
+
+You can play similar games using baby’s hands. Put a cloth on baby’s hand, and he’ll pull it off. Then, try a sock or a small oven mit.
+
+**Suggested Items**:
+
+Washcloth
+
+Small oven mit
+
+
+
+### Aren’t baby animals cute?!
+
+Expose your baby to our beautiful world! 
+
+
+
+I purchased a few calendars of artwork, baby animals, and beautiful places:
+
+* [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+* [National Parks 2022 Box Calendar ](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
+* [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+
+
+
+Then, I’d tear off a few pages from a calendar, lay on my back next to my son, and we’d look at some beautiful places, animals, and artwork and “talk”about them. 
+
+
+
+I’d point out what I saw and ask him questions. Then, I’d pause to see what he had to say.
+
+
+
+We’ve been doing this for months and love it! It’s especially fun now that he’s older and babbles responses back to my comments and questions. 
+
+
+
+### It’s story time
+
+This 3 to 4 month age is also when sensory books became a big hit with my son. 
+
+
+
+The sitting position was the best way for my son to engage with these books. 
+
+
+
+So he’d be in the sitting position, and I’d sit behind him for support. I’d put a sensory book on his legs or on the floor in front of him. Then, he’d lean forward to touch the book.
+
+
+
+Outside of sensory books, we did lots of reading while laying on our backs, side-by-side, on his playmat. I found this position more comfortable, and far less to juggle.
+
+**Suggested books**:
+
+[Farm](https://www.amazon.com/gp/product/1589256344/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Big Red Barn](https://www.amazon.com/Big-Barn-Margaret-Wise-Brown/dp/0694006246/ref=sr_1_1?keywords=The+big+red+barn&qid=1663250929&sr=8-1)
+
+[A Picnic with Monet](https://www.amazon.com/s?k=a+picnic+with+monet&sprefix=a+picnic%2Caps%2C105&ref=nb_sb_ss_ts-doa-p_1_8)
+
+[In the Garden with Van Gogh](https://www.amazon.com/gp/product/0811834158/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[My First I See You: A Mirror Book](https://www.amazon.com/gp/product/1534424547/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[I Love You to the Moon and Back](https://www.amazon.com/I-Love-You-Moon-Back/dp/B09VCTPXLG/ref=sr_1_1?crid=H1643JNS6G43&keywords=I+Love+You+to+the+Moon+and+Back&qid=1663250277&s=audible&sprefix=i+love+you+to+the+moon+and+back%2Caudible%2C135&sr=1-1)
+
+[Goodnight Moon](https://www.amazon.com/Goodnight-Moon-audiobook/dp/B001E4SMP6/ref=sr_1_1?crid=2NPLEX6UJTQDY&keywords=Goodnight+Moon&qid=1663250292&s=audible&sprefix=goodnight+moon%2Caudible%2C88&sr=1-1)
+
+[National Geographic Kids Little Kids First Board Book: Animals On the Go](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426333129/ref=sr_1_1?crid=1C08M4U9NJ9QU&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Animals+On+the+Go&qid=1663250309&s=audible&sprefix=national+geographic+kids+little+kids+first+board+book+animals+on+the+go%2Caudible%2C95&sr=1-1)
+
+[National Geographic Kids Little Kids First Board Book: Ocean](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426334680/ref=sr_1_1?crid=ZGYZVVCKH4KU&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Ocean&qid=1663250323&s=audible&sprefix=national+geographic+kids+little+kids+first+board+book+ocean%2Caudible%2C241&sr=1-1)
+
+[Panda Bear, Panda Bear, What Do You See?](https://www.amazon.com/Panda-Bear-What-You-See/dp/B005DCA17C/ref=sr_1_1?crid=1TYHK9YOKINT0&keywords=Panda+Bear%2C+Panda+Bear%2C+What+Do+You+See%3F&qid=1663250233&s=books&sprefix=panda+bear%2C+panda+bear%2C+what+do+you+see+%2Cstripbooks%2C155&sr=1-1)
+
+**[Polar Bear, Polar Bear, What Do You Hear?](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=196MX6JCJMW2T&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F&qid=1663250260&s=audible&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+%2Caudible%2C73&sr=1-1-catcorr)**
+
+
+
+### It’s laundry time
+
+\
+It seems mundane, but laundry time can be fun and educational.
+
+
+
+I’d have my son “help” me fold a basket of laundry. I’d pull out a towel, for example, and have him touch, hold, and explore it. 
+
+
+
+Then, we’d “talk” about it. I’d describe the texture and color. I’d also explain when and why we use kitchen towels, for example.
+
+
+
+I’d continue the same process with shirts, pants, socks, and anything else that was in the laundry basket.
+
+
+
+To break it up, I’d often incorporate a game of peek-a-boo. I’d put a small towel over his face or mine, and he’d pull it off. This would result in giggles, lots of giggles.
+
+
+
+### Dance to the music
+
+Turn on some beautiful music and listen for a few minutes. I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
+
+
+
+We also liked to “dance.” I’d hold my son and we’d just sway to the beat. 
+
+**Suggested item:**
+
+[Apple HomePod Mini](https://www.apple.com/homepod-mini/)
+
+
+
+### Sing, sing, sing!
+
+Baby loves the sound of your voice. He’ll give you lots of smiles as you sing the words to even the most basic of songs. 
+
+These are some of the songs my son loved at this age:
+
+* It’s a Small World
+* Old McDonald
+* The More We Sing Together 
+* Mr. Golden Sun
+
+### \
+**Explore nature**
+
+Make time for nature. Simply stand in front of a window and look outside, and talk about what you see. 
+
+
+
+On more than one occasion, I’d hold my son in front of a window studying a bug attached to the screen from outside. He’d be transfixed. 
+
+
+
+Better yet, step outside and see -- and experience -- nature first hand. I liked to hold my baby and walk around our backyard, narrating what I saw and heard, as he took in this different environment. 
+
+
+
+Point out the sights and sounds you’re experiencing. For example, “I hear the birds chirping.” Or “do you feel the breeze?!” 
+
+
+
+You can also introduce elements of nature: pull off a leaf from a tree or pick a flower, show it to him, and have him touch it.
