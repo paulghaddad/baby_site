@@ -289,8 +289,7 @@ This activity is especially fun now that he’s older and much more talkative; h
 
 ## Activities 3-4 Months
 
-### \
-Breakfast with mommy (or daddy)
+### Breakfast with mommy (or daddy)
 
 After I fed my son, Hayden, in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
 
@@ -344,3 +343,196 @@ At first, Haden would only last a few minutes in his bouncer. He was anxious to 
 Suggested Item**:
 
 [Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+
+
+
+### Grab or kick it 
+
+Make grasping objects fun for baby.
+
+
+
+I took some of my son’s favorite rattles and teethers and hung them from his play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). That way, they were low enough so my son could grab them with his hands and put them in his mouth. 
+
+
+
+This setup was also a great way to get him using his feet. The objects were low enough for him to kick, which he loved to do! I liked the [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker) for this reason. It was a wide enough target for baby.
+
+Also consider handing baby an object to explore while he sits in a [baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=). This gives him a different angle to grab objects.
+
+
+
+**Suggested Items**:
+
+[Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
+
+[Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+
+[Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
+
+
+
+### The many uses of mobiles
+
+Mobiles can have new uses during these months. 
+
+
+
+Sure, you can hang a mobile overhead for baby. But that’s just the start. 
+
+
+
+Get baby kicking by laying baby on their back on their playmat. Then, dangle a mobile just above their feet.  
+
+
+
+You can also use a mobile during tummy time. 
+
+
+
+Get baby on his tummy, then dangle the mobile in front of him or to the side. My son loved this! It gave him a new perspective, as well as the motivation he needed to lift that heavy head.
+
+**\
+Suggested Item**:
+
+[Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
+
+
+
+### **More tummy time fun!**
+
+Use props to make tummy time fun!
+
+
+
+Babies love looking at themselves in the mirror. So place baby on his tummy and prop up a mirror in front of him. 
+
+
+
+They also love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of my son. He loved this! I’d turn the pages periodically to keep things interesting.
+
+
+
+I also found it useful to prop up pictures of artwork or baby animals for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of my son, which he absolutely loved.
+
+
+
+Mobiles were another favorite tummy time item for my son. 
+
+
+
+Get baby on his belly, then dangle the mobile in front of baby or to the side. Babies, like my son, love mobiles, and provide the motivation to lift that heavy head!
+
+
+
+**Suggested items**:
+
+[Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+
+[Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+
+[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+
+[Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+
+[Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
+
+
+
+### Sit up with baby and explore
+
+Although sitting up is hard work for baby, you can make it fun and interesting! 
+
+
+
+I’d sit on the floor with my son sitting in front of me. Then, we’d explore objects together, like a ball, teether, or rattle. If he dropped the object, then I’d help him lean over to pick it up. 
+
+
+
+Other times, I’d place an object to the side or in front of him and he’d practice picking it up himself. 
+
+
+
+Dangling an object in front of baby while they’re sitting is another way to grab and explore an object. Plus, it gives baby another perspective of the object.
+
+
+
+Sensory books are great to use with baby while sitting. I’d open up a page in a book and my son would lean forward to touch and explore.
+
+
+
+**Suggested items**:
+
+[See, Touch, Feel: A First Sensory Book by by Roger Priddy](https://www.amazon.com/See-Touch-Feel-First-Sensory/dp/0312527594/ref=sr_1_1?crid=2BLETOGPDLC2P&keywords=See%2C+Touch%2C+Feel%3A+A+First+Sensory+Book+by+by+Roger+Priddy&qid=1664892386&sprefix=see%2C+touch%2C+feel+a+first+sensory+book+by+by+roger+priddy%2Caps%2C159&sr=8-1)
+
+[See, Touch, Feel: ABC by Roger Priddy](https://www.amazon.com/See-Touch-Feel-Roger-Priddy/dp/0312529708/ref=sr_1_1?crid=2ZKJDC4UD67KG&keywords=See%2C+Touch%2C+Feel%3A+ABC+by+Roger+Priddy&qid=1664892409&sprefix=see%2C+touch%2C+feel+abc+by+roger+priddy%2Caps%2C116&sr=8-1)
+
+[Farm (My First)  by Tiger Tales](https://www.amazon.com/Farm-My-First-Touch-Feel/dp/1589256344/ref=sr_1_6?crid=CYKM5UUYPYM5&keywords=Farm+by+Tiger+Tales&qid=1664892429&sprefix=farm+by+tiger+tales%2Caps%2C99&sr=8-6)
+
+
+
+
+
+### Chef baby
+
+As fun as it is to explore toys with baby, it’s equally fun to explore real world objects. 
+
+
+
+Kitchen exploration was one of my favorite things to do with my son around this age.
+
+
+
+I’d wash some fruits and veggies, such as an apple, carrot, potato, lime, and bell pepper, in advance and put them in a colander. I’d try to select a variety of colors, shapes, and textures. 
+
+
+
+At the kitchen table, I’d sit with my son on my lap and we’d explore the colander of produce together -- talking about and touching each one.
+
+
+
+I also did this with kitchen objects. I’d select a few items, like a spoon, whisk, and spatula, in advance and place them on the table. Then, we’d touch, hold, and talk about each one. 
+
+**Suggested items**:
+
+Ice cream scoop
+
+Whisk
+
+Spatula
+
+Spoon
+
+Colander
+
+Measuring cups
+
+
+
+
+
+### Make time for mirror time
+
+Babies love looking at themselves in the mirror! 
+
+
+
+Let me share my favorite way to incorporate mirror time. 
+
+
+
+I’d lay side-by-side next to my son on his play mat, holding a mirror above us. He loved looking up and studying his face. Then, I’d turn the mirror to the side so he could see my face -- another face to study! 
+
+
+
+I’d point out parts of our faces: “mommy’s nose”; “Hayden’s nose.” This could go on for some time. 
+
+
+
+A mirror is also great to use during tummy time. Prop a mirror up so baby can study his face while on his belly. He’ll love it!
+
+
+
+### Bubble time!
