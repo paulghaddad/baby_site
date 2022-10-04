@@ -824,3 +824,432 @@ And, of course, sensorial books continued to be a hit. 
 [See, Touch, Feel](https://www.amazon.com/gp/product/0312527594/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
 [See, Touch, Feel: ABC](https://www.amazon.com/gp/product/0312529708/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+
+
+
+
+### Hide and seek
+
+The simplest of games can make for endless entertainment for baby. Hide and seek is one of them. 
+
+
+
+Take a few washcloths (ideally they’re cloths of different colors) and hide three or four balls, one under each cloth. Station them out of reach for baby to encourage him to move (or slither) to them. He’ll delight in pulling off the cloths and finding the wooden balls. 
+
+
+
+You can also use measuring cups to hide the wooden balls. My son loved this!  
+
+
+
+**Suggested Items**:
+
+[Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
+
+Washcloths
+
+Measuring cups
+
+
+
+### Fun with measuring cups
+
+Who knew measuring cups could be so much fun for baby?! 
+
+
+
+Well, they certainly were for my son! We used them in different ways. One of his favorites was to simply pull out each cup when they’re stacked inside each other. 
+
+
+
+He also loved to knock them over when I’d stack them up like a tower. 
+
+
+
+It’s also fun to put a ball in each cup, and have him pull the ball out of the cup. 
+
+
+
+He’d also use the handle to dump the ball, causing it to roll. Then, he’d want to chase after it!
+
+
+
+And, of course, there’s “hide and seek.” Hide a ball under each cup and have baby find them.
+
+**Suggested Items**:
+
+Measuring cups
+
+[Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
+
+
+
+### Get baby moving with mobiles
+
+By now baby loves being on his tummy. The question is: how can you get baby to realize he can move while on his tummy?
+
+
+
+Use the mobiles from baby’s newborn days!
+
+
+
+Once baby is on his tummy, dangle a mobile in front of him. Then, slowly move (with the mobile in hand) to one side. Baby will follow by rotating on their tummy. Keep moving and baby will keep following the mobile. 
+
+
+
+Before you know it, baby has made a complete rotation on his tummy!
+
+
+
+**Suggested Item**:
+
+[Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
+
+
+
+### Water time: a sensory experience
+
+Here’s a fun sensory experience for baby: put some water on a cookie sheet and put a few objects, like measuring cups, on top. Or you can fill a small plastic bin with water. 
+
+
+
+Sit on the floor with baby sitting in front of you. The cookie sheet or bin should be in front of baby, who can now explore!
+
+
+
+Baby will love touching the water. He’ll also like seeing how familiar objects move differently in water. 
+
+
+
+Measuring cups are a fun choice for this activity. With your help, baby can scoop up some water and pour it out -- hearing (and sometimes feeling!) the splash this makes. 
+
+
+
+Once baby learns he can splash, you’ll likely find that water goes everywhere. So I found it useful to lay a towel on the floor before starting this activity. 
+
+**Suggested Items**:
+
+Cookie sheet
+
+Small plastic bin
+
+Measuring cups
+
+
+
+### Sit, reach, crawl  
+
+My son was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
+
+
+
+He just sat there, looking at it. I could see him thinking: “what do I do now?!”
+
+
+
+Thus began a game that we liked to play, which helped him learn how to get out of the sitting position, so he could retrieve the toy.
+
+
+
+Begin with baby in a sitting position and station a desired toy out of reach. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
+
+
+
+Baby will lean forward and try to reach for the toy. Help him transition out of the sitting position and into the crawling one. Then, once baby is safely on the floor, let him go at it and get his reward -- the toy.
+
+
+
+The best learning takes place when you want to learn something. If there’s a desired toy, baby will do what it takes to get it, while also learning a new skill along the way.
+
+
+
+### Mirror, mirror on the wall
+
+The fascination with mirrors only enhances at this age!
+
+
+
+Not only does baby love looking at himself in the mirror. But it’s also a great way to encourage baby to move.
+
+
+
+I’d prop up a mirror on the wall. My son would see it and slither quickly as possible toward it. 
+
+
+
+After he spent some time studying his face, I’d move the mirror again. And he’d slither to it for yet another opportunity to study his face. 
+
+
+
+He was all smiles, as he watched himself slithering up toward the mirror. 
+
+**Suggested item**:
+
+Mirror
+
+
+
+### Knock down the tower
+
+A small set of blocks makes for endless fascination for baby. 
+
+
+
+He’ll love to pick up the blocks and knock them together with his hands. 
+
+
+
+Equally fun is to build a small tower of blocks. Then, baby will come charging over to knock them down. Stack the tower back up, and he’ll gladly knock them back down.
+
+I used this activity to help encourage my son to move, when he was in the beginning stages of crawling. I’d make a tower a foot or two away from him. He’d make his way to it, and knock it down. 
+
+
+
+Then, I’d make another tower, and he’d knock it down. And so it continued for some time. 
+
+
+
+You can also make a few towers around the room and have baby go from tower to tower, knocking each one over. 
+
+
+
+Needless to say, we both got our exercise! 
+
+
+
+**Suggested item**:
+
+[Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r)
+
+
+
+### It’s time for a trip!
+
+Traveling with a baby or infant is no easy feat. But it’s so worth it. To see the world through a young person’s eyes is nothing short of amazing. 
+
+
+
+Now is a great time to pack up and head out. 
+
+
+
+But you don’t need to travel far. Nor do you have to do anything elaborate. 
+
+
+
+The first trip my family of three took was 40 minutes away and we only stayed one night (though by the amount of stuff in our car it looked like we were going to be gone for a month!).
+
+
+
+But this little trip served its many purposes. 
+
+
+
+First, it exposed our son to a new environment and landscape. A house in the middle of the woods offered many new things to look at and explore. Second, it gave him practice traveling. Above all, it provided family bonding time.
+
+
+
+Having a checklist -- that contains all of the things you need to bring for baby -- was a key learning from this experience. A checklist will give you all the peace of mind you need when you’re frantically trying to make it out the door. 
+
+**Suggested Item**s:
+
+To warm my son up to the idea of traveling, I purchased a few travel-related books for my son in advance of the trip and read them to him. Here are a few of my favorites:
+
+* [Time for a Trip](https://www.amazon.com/gp/product/1454930160/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+* [B Is for Bison: A National Parks Primer](https://www.amazon.com/gp/product/1423658299/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+* [All Aboard Pacific Northwest: A Recreation Primer](https://www.amazon.com/gp/product/1423646010/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+
+
+
+
+### 3 art projects to try 
+
+Doing art projects with my son was one of the things I looked forward to most during this age. Once he could sit up in his high chair that vision became a reality. 
+
+
+
+Art projects at this 5 to 6 month age are pretty basic, but are still a lot of fun. Here are three ideas to try. 
+
+
+
+**1. Water art**
+
+Fill a small paper or plastic bowl with water. Have construction paper nearby. 
+
+
+
+Put baby in his high chair, or sit with baby on the floor. Help him dip his fingers into the water. 
+
+
+
+Then, let him touch or grab the paper. It’s fun to make hand prints, too. You can also use [large art brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) to make water marks.
+
+
+
+**2. Finger paint**
+
+I like [this simple recipe](https://www.google.com/search?q=homemade+finger+paint+for+babies&oq=homemade+finger+&aqs=chrome.1.0i512j0i20i263i512j0i512j69i57j0i512l2j69i60l2.4204j0j4&sourceid=chrome&ie=UTF-8) to make homemade finger paint, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
+
+
+
+Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
+
+
+
+As fun as it is for baby to decorate the paper with paint, it’s equally enjoyable for him to squish the paint in his hands. It’s definitely a sensorial experience!
+
+
+
+To keep things relatively clean, put baby in a [mess-proof bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1).
+
+
+
+**3. Abstract art**
+
+Release baby’s inner Jackson Pollock with this fun abstract art activity. 
+
+
+
+Place a few [drops of paint](https://www.amazon.com/gp/product/B00004UBH2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) on a piece of paper. [Construction paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) is ideal for to help prevent the paint from leaking through. 
+
+
+
+Place the paper with paint into the [Ziplock freezer bag](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5) and close the bag. You can use tape to secure the bag to the table, if you wish.
+
+
+
+Now baby can run their fingers over the drops of paint and squish the paint drops with their hands -- without any mess! 
+
+**Suggested Items**:
+
+* [Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+* [Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+* [Crayola Washable Kids Paint](https://www.amazon.com/gp/product/B00004UBH2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+* [365 by Whole Foods Market, Food Coloring (plant-based)](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5)
+* [Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+* [Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
+
+
+
+### Sensory boxes: touch, feel, pull
+
+Help baby develop his senses by creating sensory boxes, using everyday items from home. 
+
+
+
+It’s fun to create themed sensory boxes. Just take a small box or basket and fill it with a handful or so of times. 
+
+
+
+Here are some sensory box ideas to consider:
+
+* **Kitchen box**, which can include an oven mit, spoon (for eating), wooden spoon,  spatula, whisk, and placemat.
+* **Bathroom box**, which can include a roll of toilet paper, toothbrush, floss container, loofa, and a box of tissues.
+* **Soft-items box**, which can include a loofa, pair of socks, wash cloth, and towel.
+* **Ball box**, which contains toy balls of different colors, shapes, and textures.
+* **Toy box**, which contains toys and teethers of various colors, shapes, and textures.
+
+
+
+Then have baby sit up and pull out each object from the box. 
+
+
+
+Babies love to empty a box full of things. They’ll have as much fun pulling everything out as they will touching and exploring each object.
+
+
+
+
+
+### Spice it up!
+
+Want a great way to introduce baby into the world of food and enliven their sense of smell?!
+
+
+
+Then, grab some spices and herbs and explore them with baby.
+
+
+
+My son loves this activity! Here’s how it works. 
+
+
+
+I sat in a chair next to my son, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let my son smell it. 
+
+
+
+I did the same thing with herbs. I talked about the spice or herb with my son, what it smelled like and what dishes we used it in.  
+
+
+
+Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
+
+
+
+
+
+### Does your baby know their fruits and veggies?
+
+Want a great way to introduce fruits and veggies to baby -- and enliven their senses in the process?
+
+\
+Here’s what you can do. Take a colander and wash a few fruits and vegetables, such as an apple, orange, carrot, cucumber, and bell pepper. 
+
+
+
+Then, head to the table and explore these items with baby. Pull out an apple, and have baby touch it. Talk about what your baby is seeing a feeling. 
+
+
+
+Take this sensory activity a step further by slicing and orange, lemon, or lime and have baby smell and touch it. 
+
+**Suggested Items**:
+
+[Colander](https://www.amazon.com/Colander-Pro-Stainless-Steel-5-Quart/dp/B0182PE91A/ref=sr_1_1_sspa?keywords=colander&qid=1664894074&qu=eyJxc2MiOiI2LjkyIiwicXNhIjoiNi40NSIsInFzcCI6IjYuMDkifQ%3D%3D&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVEFLQVVSWEtKQjBNJmVuY3J5cHRlZElkPUEwMjM2NjI3MkU1Sjg1MzExQVlaNCZlbmNyeXB0ZWRBZElkPUEwODEyNjc3M0Y4R01QSVJLQzRHViZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+
+A﻿ variety of fruits and veggies
+
+### A budding chef
+
+Now is a great time to involve baby with some basic recipes. 
+
+
+
+In fact, my son has “helped” me make several of his purees. We made a banana puree together, for example. And it was a lot of fun. 
+
+
+
+He sat in his high chair and I sat next to him at the kitchen table. I showed him the pile of bananas, as I peeled each one. Then, I let him smell and hold one of the peeled bananas. 
+
+
+
+He watched enthusiastically as I sliced the bananas and placed them in the food processor. Once it was smooth, I gave him a small taste. 
+
+
+
+This simple activity was a multi-sensorial experience for my son.
+
+
+
+## Get singing!
+
+Babies love to hear you sing, even if you’re out of tune like me. 
+
+
+
+My son loved songs with hand motions at this age. Here are a few of songs to try:
+
+* The Wheels on the Bus
+* Where is Thumbkin?
+* The Itsy Bitsy Spider
+* 5 Little Monkeys Jumping on the Bed
+* 5 Little Ducks
+* If You’re Happy and You Know It
+
+
+
+Songs like these are bound to elicit lots of smiles and giggles!
