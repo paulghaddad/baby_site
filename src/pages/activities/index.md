@@ -229,7 +229,9 @@ Early on, my son wasn’t engaging with some of the items that came with his pla
 
 
 
-So I customized it myself with three black and white 
+So I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1). 
+
+
 
 I punched a hole in each one and attached it to the play gym structure with a string. The cards dangled from the top of the play gym. There are images on both sides of the cards, which made them fun to look at -- especially when they moved.
 
@@ -245,7 +247,7 @@ So I customized it again. 
 
 I took objects -- rattles and teethers -- and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
 
-**Suggested Items:**
+Suggested Items:
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
@@ -258,3 +260,25 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 [Organic Teething Ring - Bear](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/senger-organic-teething-ring-animal-baby-bear)
 
 [Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+### Baby Monet
+
+I began sharing my passion for art with my son very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
+
+Then, I tore off a few pages from a calendar. We laid side-by-side on our backs on my son’s playmat to look at beautiful artwork and “talked”about them. 
+
+I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
+
+This was such a hit. So I did the same thing with baby animals and beautiful places. I purchased a [baby animal](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1) and [national park](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3) calendars. 
+
+This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
+
+
+
+**Suggested Items**:
+
+[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+
+[Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+
+[N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
