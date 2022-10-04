@@ -247,7 +247,7 @@ So I customized it again. 
 
 I took objects -- rattles and teethers -- and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
 
-Suggested Items:
+**Suggested Items**:
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
