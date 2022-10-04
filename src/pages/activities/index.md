@@ -689,8 +689,7 @@ These are some of the songs my son loved at this age:
 * The More We Sing Together 
 * Mr. Golden Sun
 
-### \
-**Explore nature**
+### E﻿xplore Nature
 
 Make time for nature. Simply stand in front of a window and look outside, and talk about what you see. 
 
@@ -709,3 +708,119 @@ Point out the sights and sounds you’re experiencing. For example, “I hear th
 
 
 You can also introduce elements of nature: pull off a leaf from a tree or pick a flower, show it to him, and have him touch it.
+
+## Activities 5-6 Months
+
+### **Parts of the body**
+
+Let baby learn about the different parts of his body. 
+
+
+
+Sit or lay next to baby on his playmat, and point out his different facial features: nose, ears, chin. Say each word as you touch each part. For example, say “this is your left leg” as you touch his left leg. 
+
+
+
+You can also do this activity with a mirror, so baby can see his nose when you touch it and say the word.
+
+
+
+Conclude this “parts of the body” activity with the song “Head, Shoulders, Knees, and Toes.” This always results in many smiles and giggles!
+
+
+
+### Wooden ball pick up
+
+It’s so simple, but so beneficial and fun for baby!
+
+
+
+Sit on the floor with baby sitting in front of you. Then, give baby a small wooden ball to hold. 
+
+
+
+Inevitably, baby will drop the ball. At this point, encourage him to pick it back up. Or he may do this on his own.
+
+
+
+It’s hard to do because a smooth wooden ball rolls, and can be hard to grasp. But this gives baby great practice in building hand-eye coordination. 
+
+
+
+At the same time, he builds all of the muscles that are involved in the sitting position. 
+
+
+
+Eventually, baby will get pretty good at this and may (intentionally or not) roll the ball too far, and it’ll be out of reach.
+
+
+
+That’s okay! 
+
+
+
+In fact, it’s great because now baby has to figure out how to get out of the sitting position to get the ball. You may need to help him to make this transition initially. But it’ll get easier, and more intuitive for baby, over time.
+
+**Suggested Item**:
+
+[Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
+
+
+
+### Catch
+
+It’s not too early to start playing catch -- well a modified version, at least, for baby. I got this idea from Dr. Peter Vishton’s online course, Scientific Secrets for Raising Kids Who Thrive, and it’s a good one.
+
+
+
+Here’s how it works. Sit at a table, like your kitchen or dining room table, with baby on your lap. Use a wood or rubber ball and roll the ball to baby. 
+
+
+
+The aim is for baby to extend one or both hands to “catch” the rolling ball. 
+
+
+
+You can roll the ball straight in front of baby. I found this to be the easiest for my son. That way he could extend both arms and catch the rolling ball. 
+
+
+
+You can also roll it from the side. Or roll it directly toward one hand in attempt for baby to extend that hand to reach for it.
+
+
+
+This game is a great way to build hand-eye coordination.
+
+**Suggested Item**:
+
+[Wooden ball](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
+
+
+
+### Reading is fun!
+
+This is such a fun age to read with baby!
+
+
+
+My son loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm and push the page over. He loved being involved in the process.
+
+
+
+He also loved lift-the-flap books, like Dear Zoo. 
+
+
+
+And, of course, sensorial books continued to be a hit. 
+
+**Suggested books**:
+
+[Where’s Spot?](https://www.amazon.com/Wheres-Spot-Eric-Hill/dp/0399240462/ref=asc_df_0399240462/?tag=hyprod-20&linkCode=df0&hvadid=312041961788&hvpos=&hvnetw=g&hvrand=87701769945528723&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1015223&hvtargid=pla-436146284818&psc=1#customerReviews)
+
+[Dear Zoo](https://www.amazon.com/gp/product/141694737X/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Farm](https://www.amazon.com/gp/product/1589256344/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[See, Touch, Feel](https://www.amazon.com/gp/product/0312527594/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[See, Touch, Feel: ABC](https://www.amazon.com/gp/product/0312529708/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
