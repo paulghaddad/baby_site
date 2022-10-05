@@ -17,13 +17,15 @@ They’re baiting you. Just like I’m baited by Hayden during his unstructured 
 
 But even during unstructured play I often have to hold myself back. I want to show him something. I want to interact. It’s not only fun, but I also feel that it’s useful to him to grow and develop. And there’s time for this. 
 
-But it’s equally important to give baby time to play on their own.
+**But it’s equally important to give baby time to play on their own**.
 
-Unstructured play helps to teach baby how to play independently, without always having to rely on a playmate.  
+![](/img/c78e7d77-ad2c-4bfa-bcb0-79ca3c711bf7.jpeg)
 
-It also gives baby a chance to think and make connections. One Hayden stacked one measuring cup into another. It seems so simple. But we had been working on stacking objects for a while without much success. When I left him alone and gave him some time and space to think, he did it on his own.
+Unstructured play helps to teach baby how to **play independently**, without always having to rely on a playmate.  
 
-Unstructured play time is also a great opportunity for you to gauge baby’s interests. What does baby gravitate toward? Where does he spend his time? 
+It also gives baby a chance to **think and make connections**. One day Hayden stacked one measuring cup into another. It seems so simple. But we had been working on stacking objects for a while without much success. When I left him alone and gave him some time and space to think, he did it on his own.
+
+**Unstructured play time is also a great opportunity for you to gauge baby’s interests**. What does baby gravitate toward? Where does he spend his time? 
 
 Use the clues you pick up to create fun activities for baby during structured play time. 
 
