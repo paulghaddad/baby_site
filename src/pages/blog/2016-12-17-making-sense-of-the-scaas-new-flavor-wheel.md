@@ -2,17 +2,17 @@
 templateKey: blog-post
 title: A Food Education
 date: 2016-09-20T14:04:00.000Z
-description: Eating is more than just nourishment. It’s also an experience.
+description: Raising a picky eater was one of my biggest fears as a parent.
 featuredpost: false
 featuredimage: /img/img_9183.jpeg
 tags:
   - food
 ---
-My son, Hayden, eats solids with gusto -- including fruits and veggies. Black bean chili, lentil soup, and garlic chicken are among his favorites. 
+M﻿y husband and I are adventurous eaters and enjoy good, fresh food. When Hayden began solids, I wanted him to eat a variety of foods and appreciate a good meal, too.
 
-I’m convinced it’s because of the attitude my husband and I take toward eating. Instead of treating it as another task, we think of mealtime as a learning opportunity. 
+How does a mama help make that happen?!
 
-Of course we want to model good table manners. But that’s just the start. **We also want mealtime to be an educational food experience**.
+I﻿'m not sure there's one right answer, but let me share what I’ve done. Instead of treating mealtime as another task, I think of it as a learning opportunity. It’s an educational experience. 
 
 When I recently introduced cauliflower to Hayden, I dipped a spoon into the puree and let him smell it. He took a small taste and paused. 
 
