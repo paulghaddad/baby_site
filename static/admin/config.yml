@@ -133,15 +133,15 @@ collections:
             }
           - { label: "Title", name: "title", widget: "string" }
           - { label: "Body", name: "body", widget: "markdown" }
-      - file: "src/pages/activities/index.md"
-        label: "Activities"
-        name: "activities"
+      - file: "src/pages/activities-0-12-weeks/index.md"
+        label: "Activities 0-12 Weeks Page"
+        name: "activities-0-12-weeks"
         fields:
           - {
               label: "Template Key",
               name: "templateKey",
               widget: "hidden",
-              default: "activities-page",
+              default: "activities-0-12-weeks-page",
             }
           - { label: "Title", name: "title", widget: "string" }
           - { label: "Body", name: "body", widget: "markdown" }

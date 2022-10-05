@@ -1,6 +1,6 @@
 ---
-templateKey: activities-page
-path: /activities
+templateKey: activities-0-12-weeks-page
+path: /activities-0-12-weeks
 title: "Play to Learn "
 ---
 ## Activities 0-12 Weeks
