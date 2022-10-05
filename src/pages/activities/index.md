@@ -13,7 +13,7 @@ While baby is on his tummy on his playmat: 
 
 * Prop up some [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) against the wall for baby to look at. 
 * Lean a mirror against the wall so baby can look at himself.  
-* Prop a board book against the wall, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) or [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), while my son was on his tummy.
+* Prop a board book against the wall, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) or [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), while Hayden was on his tummy.
 * Use a mobile during. He loved this! He loved looking at mobiles while on his back, so looking at one while on his tummy offered a new perspective and motivated him to lift that heavy head! 
 
 I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)) or artwork ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. He'd be mesmerized!
@@ -24,7 +24,7 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 You can also use a nursing pillow to prop up your baby. 
 
-\
+
 **Suggested Items:**
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) 
@@ -67,13 +67,13 @@ Babies love mobiles! And so should you -- because you can use them in many diffe
 
 I strategically placed a mobile overHayden’s changing table. This made diaper changes hassle free. He was mesmerized by the swirls above him -- especially when they moved.
 
-I also used mobiles above my son’s play quilt, where he’d stretch his arms and legs watching and reacting to the shapes floating above him. 
+I also used mobiles above Hayden’s play quilt, where he’d stretch his arms and legs watching and reacting to the shapes floating above him. 
 
 These mobiles were a gift that kept on giving because I used them in different ways as my baby got older and more advanced.
 
-In addition to using these mobiles overhead, I also used them during tummy time. This gave my son a different perspective. Because mobiles are so fun to look at, they motivated my son to lift that heavy head! 
+In addition to using these mobiles overhead, I also used them during tummy time. This gave Hayden a different perspective. Because mobiles are so fun to look at, they motivated him to lift that heavy head! 
 
-Then, as my son began to become more mobile on his tummy, I used the mobiles to encourage him to rotate. I’d hold a mobile in front of him, then slowly move around his playmat and he’d follow me. 
+Then, as he began to become more mobile on his tummy, I used the mobiles to encourage Hayden to rotate. I’d hold a mobile in front of him, then slowly move around his playmat and he’d follow me. 
 
 **Suggested Items:**
 
@@ -109,9 +109,9 @@ Make eye contact with your baby and have a conversation. Ask him a question, the
 
 ### Make time for book time 
 
-It’s never too early to start reading. I began reading to my son as soon as we got home from the hospital, and we haven’t stopped!
+It’s never too early to start reading. I began reading to Hayden as soon as we got home from the hospital, and we haven’t stopped!
 
-Early on, I read to my son while holding him.
+Early on, I read while holding him.
 
 But I soon found it more comfortable to lay on our backs, side-by-side on his playmat, where I’d hold the book above his head. I found this position to be easier and more comfortable. There was less to juggle!
 
@@ -183,13 +183,13 @@ You can also introduce elements of nature: pull off a leaf from a tree or pick a
 
 ### Customize your play gym
 
-Early on, my son wasn’t engaging with some of the items that came with his play gym.
+Early on, Hayden wasn’t engaging with some of the items that came with his play gym.
 
 So I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1). 
 
 I punched a hole in each one and attached it to the play gym structure with a string. The cards dangled from the top of the play gym. There are images on both sides of the cards, which made them fun to look at -- especially when they moved.
 
-This worked great until my son was ready to grasp objects. 
+This worked great until he was ready to grasp objects. 
 
 So I customized it again. 
 
@@ -211,9 +211,9 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 
 ### Baby Monet
 
-I began sharing my passion for art with my son very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
+I began sharing my passion for art with Hayden very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
 
-Then, I tore off a few pages from a calendar. We laid side-by-side on our backs on my son’s playmat to look at beautiful artwork and “talked”about them. 
+Then, I tore off a few pages from a calendar. We laid side-by-side on our backs on his playmat to look at beautiful artwork and “talked”about them. 
 
 I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
 
@@ -233,7 +233,7 @@ This activity is especially fun now that he’s older and much more talkative; h
 
 ### Breakfast with mommy (or daddy)
 
-After I fed my son, Hayden, in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
+After I fed Hayden in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
 
 Hayden would sit in his [BabyBjörn bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=), which was placed near the kitchen table, as I
 
@@ -270,7 +270,7 @@ Suggested Item**:
 
 Make grasping objects fun for baby.
 
-I took some of my son’s favorite rattles and teethers and hung them from his play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). That way, they were low enough so my son could grab them with his hands and put them in his mouth. 
+I took some of Hayden's favorite rattles and teethers and hung them from his play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). That way, they were low enough so he could grab them with his hands and put them in his mouth. 
 
 This setup was also a great way to get him using his feet. The objects were low enough for him to kick, which he loved to do! I liked the [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker) for this reason. It was a wide enough target for baby.
 
@@ -296,7 +296,7 @@ Get baby kicking by laying baby on their back on their playmat. Then, dangle a m
 
 You can also use a mobile during tummy time. 
 
-Get baby on his tummy, then dangle the mobile in front of him or to the side. My son loved this! It gave him a new perspective, as well as the motivation he needed to lift that heavy head.
+Get baby on his tummy, then dangle the mobile in front of him or to the side. Hayden loved this! It gave him a new perspective, as well as the motivation he needed to lift that heavy head.
 
 **\
 Suggested Item**:
@@ -309,11 +309,11 @@ Use props to make tummy time fun!
 
 Babies love looking at themselves in the mirror. So place baby on his tummy and prop up a mirror in front of him. 
 
-They also love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of my son. He loved this! I’d turn the pages periodically to keep things interesting.
+They also love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
 
-I also found it useful to prop up pictures of artwork or baby animals for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of my son, which he absolutely loved.
+I also found it useful to prop up pictures of artwork or baby animals for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of him, which he absolutely loved.
 
-Mobiles were another favorite tummy time item for my son. 
+Mobiles were another favorite tummy time item. 
 
 Get baby on his belly, then dangle the mobile in front of baby or to the side. Babies, like my son, love mobiles, and provide the motivation to lift that heavy head!
 
@@ -333,13 +333,13 @@ Get baby on his belly, then dangle the mobile in front of baby or to the side. B
 
 Although sitting up is hard work for baby, you can make it fun and interesting! 
 
-I’d sit on the floor with my son sitting in front of me. Then, we’d explore objects together, like a ball, teether, or rattle. If he dropped the object, then I’d help him lean over to pick it up. 
+I’d sit on the floor with Hayden sitting in front of me. Then, we’d explore objects together, like a ball, teether, or rattle. If he dropped the object, then I’d help him lean over to pick it up. 
 
 Other times, I’d place an object to the side or in front of him and he’d practice picking it up himself. 
 
 Dangling an object in front of baby while they’re sitting is another way to grab and explore an object. Plus, it gives baby another perspective of the object.
 
-Sensory books are great to use with baby while sitting. I’d open up a page in a book and my son would lean forward to touch and explore.
+Sensory books are great to use with baby while sitting. I’d open up a page in a book and Hayden would lean forward to touch and explore.
 
 **Suggested items**:
 
@@ -353,11 +353,11 @@ Sensory books are great to use with baby while sitting. I’d open up a page in 
 
 As fun as it is to explore toys with baby, it’s equally fun to explore real world objects. 
 
-Kitchen exploration was one of my favorite things to do with my son around this age.
+Kitchen exploration was one of my favorite things to do with Hayden around this age.
 
 I’d wash some fruits and veggies, such as an apple, carrot, potato, lime, and bell pepper, in advance and put them in a colander. I’d try to select a variety of colors, shapes, and textures. 
 
-At the kitchen table, I’d sit with my son on my lap and we’d explore the colander of produce together -- talking about and touching each one.
+At the kitchen table, I’d sit with Hayden on my lap and we’d explore the colander of produce together -- talking about and touching each one.
 
 I also did this with kitchen objects. I’d select a few items, like a spoon, whisk, and spatula, in advance and place them on the table. Then, we’d touch, hold, and talk about each one. 
 
@@ -381,7 +381,7 @@ Babies love looking at themselves in the mirror! 
 
 Let me share my favorite way to incorporate mirror time. 
 
-I’d lay side-by-side next to my son on his play mat, holding a mirror above us. He loved looking up and studying his face. Then, I’d turn the mirror to the side so he could see my face -- another face to study! 
+I’d lay side-by-side next to Hayden on his play mat, holding a mirror above us. He loved looking up and studying his face. Then, I’d turn the mirror to the side so he could see my face -- another face to study! 
 
 I’d point out parts of our faces: “mommy’s nose”; “Hayden’s nose.” This could go on for some time. 
 
@@ -421,7 +421,7 @@ I purchased a few calendars of artwork, baby animals, and beautiful places:
 * [National Parks 2022 Box Calendar ](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
 * [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-Then, I’d tear off a few pages from a calendar, lay on my back next to my son, and we’d look at some beautiful places, animals, and artwork and “talk”about them. 
+Then, I’d tear off a few pages from a calendar, lay on my back next to Hayden, and we’d look at some beautiful places, animals, and artwork and “talk”about them. 
 
 I’d point out what I saw and ask him questions. Then, I’d pause to see what he had to say.
 
@@ -429,9 +429,9 @@ We’ve been doing this for months and love it! It’s especially fun now that h
 
 ### It’s story time
 
-This 3 to 4 month age is also when sensory books became a big hit with my son. 
+This 3 to 4 month age is also when sensory books became a big hit with Hayden. 
 
-The sitting position was the best way for my son to engage with these books. 
+The sitting position was the best way for him to engage with these books. 
 
 So he’d be in the sitting position, and I’d sit behind him for support. I’d put a sensory book on his legs or on the floor in front of him. Then, he’d lean forward to touch the book.
 
@@ -463,10 +463,9 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 ### It’s laundry time
 
-\
 It seems mundane, but laundry time can be fun and educational.
 
-I’d have my son “help” me fold a basket of laundry. I’d pull out a towel, for example, and have him touch, hold, and explore it. 
+I’d have Hayden “help” me fold a basket of laundry. I’d pull out a towel, for example, and have him touch, hold, and explore it. 
 
 Then, we’d “talk” about it. I’d describe the texture and color. I’d also explain when and why we use kitchen towels, for example.
 
@@ -478,7 +477,7 @@ To break it up, I’d often incorporate a game of peek-a-boo. I’d put a small 
 
 Turn on some beautiful music and listen for a few minutes. I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
 
-We also liked to “dance.” I’d hold my son and we’d just sway to the beat. 
+We also liked to “dance.” I’d hold Hayden and we’d just sway to the beat. 
 
 **Suggested item:**
 
@@ -488,7 +487,7 @@ We also liked to “dance.” I’d hold my son and we’d just sway to the beat
 
 Baby loves the sound of your voice. He’ll give you lots of smiles as you sing the words to even the most basic of songs. 
 
-These are some of the songs my son loved at this age:
+These are some of the songs Hayden loved at this age:
 
 * It’s a Small World
 * Old McDonald
@@ -499,7 +498,7 @@ These are some of the songs my son loved at this age:
 
 Make time for nature. Simply stand in front of a window and look outside, and talk about what you see. 
 
-On more than one occasion, I’d hold my son in front of a window studying a bug attached to the screen from outside. He’d be transfixed. 
+On more than one occasion, I’d hold Hayden in front of a window studying a bug attached to the screen from outside. He’d be transfixed. 
 
 Better yet, step outside and see -- and experience -- nature first hand. I liked to hold my baby and walk around our backyard, narrating what I saw and heard, as he took in this different environment. 
 
@@ -549,7 +548,7 @@ Here’s how it works. Sit at a table, like your kitchen or dining room table, w
 
 The aim is for baby to extend one or both hands to “catch” the rolling ball. 
 
-You can roll the ball straight in front of baby. I found this to be the easiest for my son. That way he could extend both arms and catch the rolling ball. 
+You can roll the ball straight in front of baby. I found this to be the easiest for Hayden. That way he could extend both arms and catch the rolling ball. 
 
 You can also roll it from the side. Or roll it directly toward one hand in attempt for baby to extend that hand to reach for it.
 
@@ -563,7 +562,7 @@ This game is a great way to build hand-eye coordination.
 
 This is such a fun age to read with baby!
 
-My son loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm and push the page over. He loved being involved in the process.
+Hayden loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm and push the page over. He loved being involved in the process.
 
 He also loved lift-the-flap books, like Dear Zoo. 
 
@@ -587,7 +586,7 @@ The simplest of games can make for endless entertainment for baby. Hide and seek
 
 Take a few washcloths (ideally they’re cloths of different colors) and hide three or four balls, one under each cloth. Station them out of reach for baby to encourage him to move (or slither) to them. He’ll delight in pulling off the cloths and finding the wooden balls. 
 
-You can also use measuring cups to hide the wooden balls. My son loved this!  
+You can also use measuring cups to hide the wooden balls. Hayden loved this!  
 
 **Suggested Items**:
 
@@ -601,7 +600,7 @@ Measuring cups
 
 Who knew measuring cups could be so much fun for baby?! 
 
-Well, they certainly were for my son! We used them in different ways. One of his favorites was to simply pull out each cup when they’re stacked inside each other. 
+Well, they certainly were for Hayden! We used them in different ways. One of his favorites was to simply pull out each cup when they’re stacked inside each other. 
 
 He also loved to knock them over when I’d stack them up like a tower. 
 
@@ -653,7 +652,7 @@ Measuring cups
 
 ### Sit, reach, crawl  
 
-My son was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
+Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
 
 He just sat there, looking at it. I could see him thinking: “what do I do now?!”
 
@@ -671,7 +670,7 @@ The fascination with mirrors only enhances at this age!
 
 Not only does baby love looking at himself in the mirror. But it’s also a great way to encourage baby to move.
 
-I’d prop up a mirror on the wall. My son would see it and slither quickly as possible toward it. 
+I’d prop up a mirror on the wall. Hayden would see it and slither quickly as possible toward it. 
 
 After he spent some time studying his face, I’d move the mirror again. And he’d slither to it for yet another opportunity to study his face. 
 
@@ -689,7 +688,7 @@ He’ll love to pick up the blocks and knock them together with his hands. 
 
 Equally fun is to build a small tower of blocks. Then, baby will come charging over to knock them down. Stack the tower back up, and he’ll gladly knock them back down.
 
-I used this activity to help encourage my son to move, when he was in the beginning stages of crawling. I’d make a tower a foot or two away from him. He’d make his way to it, and knock it down. 
+I used this activity to help encourage Hayden to move, when he was in the beginning stages of crawling. I’d make a tower a foot or two away from him. He’d make his way to it, and knock it down. 
 
 Then, I’d make another tower, and he’d knock it down. And so it continued for some time. 
 
@@ -719,7 +718,7 @@ Having a checklist -- that contains all of the things you need to bring for baby
 
 **Suggested Item**s:
 
-To warm my son up to the idea of traveling, I purchased a few travel-related books for my son in advance of the trip and read them to him. Here are a few of my favorites:
+To warm Hayden up to the idea of traveling, I purchased a few travel-related books for him in advance of the trip and read them to him. Here are a few of my favorites:
 
 * [Time for a Trip](https://www.amazon.com/gp/product/1454930160/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [B Is for Bison: A National Parks Primer](https://www.amazon.com/gp/product/1423658299/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
@@ -727,7 +726,7 @@ To warm my son up to the idea of traveling, I purchased a few travel-related boo
 
 ### 3 art projects to try
 
-Doing art projects with my son was one of the things I looked forward to most during this age. Once he could sit up in his high chair that vision became a reality. 
+Doing art projects with Hayden was one of the things I looked forward to most during this age. Once he could sit up in his high chair that vision became a reality. 
 
 Art projects at this 5 to 6 month age are pretty basic, but are still a lot of fun. Here are three ideas to try. 
 
@@ -792,11 +791,11 @@ Want a great way to introduce baby into the world of food and enliven their sens
 
 Then, grab some spices and herbs and explore them with baby.
 
-My son loves this activity! Here’s how it works. 
+Hayden loves this activity! Here’s how it works. 
 
-I sat in a chair next to my son, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let my son smell it. 
+I sat in a chair next to him, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let Hayden smell it. 
 
-I did the same thing with herbs. I talked about the spice or herb with my son, what it smelled like and what dishes we used it in.  
+I did the same thing with herbs. I talked about the spice or herb, what it smelled like and what dishes we used it in.  
 
 Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
 
@@ -804,7 +803,6 @@ Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work gre
 
 Want a great way to introduce fruits and veggies to baby -- and enliven their senses in the process?
 
-\
 Here’s what you can do. Take a colander and wash a few fruits and vegetables, such as an apple, orange, carrot, cucumber, and bell pepper. 
 
 Then, head to the table and explore these items with baby. Pull out an apple, and have baby touch it. Talk about what your baby is seeing a feeling. 
@@ -821,19 +819,19 @@ A﻿ variety of fruits and veggies
 
 Now is a great time to involve baby with some basic recipes. 
 
-In fact, my son has “helped” me make several of his purees. We made a banana puree together, for example. And it was a lot of fun. 
+In fact, Hayden has “helped” me make several of his purees. We made a banana puree together, for example. And it was a lot of fun. 
 
 He sat in his high chair and I sat next to him at the kitchen table. I showed him the pile of bananas, as I peeled each one. Then, I let him smell and hold one of the peeled bananas. 
 
 He watched enthusiastically as I sliced the bananas and placed them in the food processor. Once it was smooth, I gave him a small taste. 
 
-This simple activity was a multi-sensorial experience for my son.
+This simple activity was a multi-sensorial experience.
 
 ## Get singing!
 
 Babies love to hear you sing, even if you’re out of tune like me. 
 
-My son loved songs with hand motions at this age. Here are a few of songs to try:
+Hayden loved songs with hand motions at this age. Here are a few of songs to try:
 
 * The Wheels on the Bus
 * Where is Thumbkin?
