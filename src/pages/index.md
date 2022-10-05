@@ -1,7 +1,7 @@
 ---
 templateKey: index-page
 title: Learn by playing
-image: /img/home-jumbotron.jpg
+image: /img/img_9432.jpeg
 heading: delete
 subheading: Activities, books, toys
 mainpitch:
