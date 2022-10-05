@@ -28,15 +28,15 @@ And this is how mealtime goes. 
 
 The food experience continues outside of mealtimes, too. Hayden and I spend a lot of time in the kitchen. We’ve been doing so for months -- long before he was eating solids. 
 
-![spices](/img/img_9253.jpeg)
+![kitchen utensils](/img/img_9253.jpeg)
 
 We’ll sit at the kitchen table and explore different kitchen objects, like pots, pans, spatulas, or a whisk (Hayden’s favorite). 
 
-![](/img/screen-shot-2022-10-03-at-4.41.31-pm.png)
+![baby smelling spices](/img/screen-shot-2022-10-03-at-4.41.31-pm.png)
 
 We’ll also explore spices and herbs. He loves the smell of ground cinnamon. 
 
-![](/img/img_9252.jpeg)
+![produce](/img/img_9252.jpeg)
 
 Exploring fruits and veggies is one of our favorite kitchen activities. We’ll explore apples, limes, oranges, peppers, and carrots. After he touches a lemon or lime, I’ll cut it in half and he’ll smell it. Sometimes I’ll take a bite or two of an apple, and then the giggles begin. Hayden loves to hear the crunch of an apple. 
 
