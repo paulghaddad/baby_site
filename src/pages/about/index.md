@@ -1,19 +1,22 @@
 ---
 templateKey: about-page
 path: /about
-title: About our values!
+title: Welcome to Learning Babies!
 ---
-### Shade-grown coffee
-Coffee is a small tree or shrub that grows in the forest understory in its wild form, and traditionally was grown commercially under other trees that provided shade. The forest-like structure of shade coffee farms provides habitat for a great number of migratory and resident species.
+Do you have a little one and wonder:
 
-### Single origin
-Single-origin coffee is coffee grown within a single known geographic origin. Sometimes, this is a single farm or a specific collection of beans from a single country. The name of the coffee is then usually the place it was grown to whatever degree available.
+* What activities should I use as my baby grows?
+* What developmental toys should I introduce and when? And where can I buy them?
+* What books should I read to my baby?
 
-### Sustainable farming
-Sustainable agriculture is farming in sustainable ways based on an understanding of ecosystem services, the study of relationships between organisms and their environment. What grows where and how it is grown are a matter of choice and careful consideration for nature and communities.
+I’m Amy, and I’m a writer turned stay at home mom. I’d repeatedly ask myself these questions each month or two as my son, Hayden, got older. I couldn’t find answers to these questions all in one place, so I created Learning Babies.
 
-### Direct sourcing
-Direct trade is a form of sourcing practiced by some coffee roasters. Advocates of direct trade practices promote direct communication and price negotiation between buyer and farmer, along with systems that encourage and incentivize quality.
+![baby smiling](/img/02704a92-c1b3-49b9-878e-fd605b9354ef.jpeg "baby smiling")
 
-### Reinvest profits
-We want to truly empower the communities that bring amazing coffee to you. That’s why we reinvest 20% of our profits into farms, local businesses and schools everywhere our coffee is grown. You can see the communities grow and learn more about coffee farming on our blog.
+It provides simple and easy activities organized by age, from 0 to 6 months. I incorporate a little bit of everything: art, nature, sensory play, music, reading, and cooking. I also include the supplies you need and where you can buy them for each activity. 
+
+I’ll continue to add content for older babies and toddlers over time. So sign up for my newsletter for updates, as well as practical child development ideas.
+
+I’ve also compiled useful developmental toys by age and a list of books for babies. 
+
+Learning through play is a lot of fun when you have the resources you need to do your job. I hope this website can help you along your journey.
