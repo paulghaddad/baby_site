@@ -2,17 +2,19 @@
 templateKey: blog-post
 title: A Food Education
 date: 2016-09-20T14:04:00.000Z
-description: Raising a picky eater was one of my biggest fears as a parent.
+description: One of my biggest fears as a parent was raising a picky eater.
 featuredpost: false
 featuredimage: /img/img_9183.jpeg
 tags:
   - food
 ---
-M﻿y husband and I are adventurous eaters and enjoy good, fresh food. When Hayden began solids, I wanted him to eat a variety of foods and appreciate a good meal, too.
+M﻿y husband and I are adventurous eaters and enjoy good, fresh food. When Hayden began solids, I wanted him to eat a variety of foods and appreciate a good meal.
 
 How does a mama help make that happen?!
 
-I﻿'m not sure there's one right answer, but let me share what I’ve done. Instead of treating mealtime as another task, I think of it as a learning opportunity. It’s an educational experience. 
+I﻿'m not sure there's one right answer, but let me share what I’m doing -- and it doesn't involve hacks or tricks. Rather it's a different attitude. 
+
+I think of mealtime as a learning opportunity. It’s an educational experience. And I’m convinced this is the reason why Hayden loves to try new foods, and devours a range of fruits and veggies and meals like lentil soup, garlic chicken, and black bean chili. 
 
 When I recently introduced cauliflower to Hayden, I dipped a spoon into the puree and let him smell it. He took a small taste and paused. 
 
