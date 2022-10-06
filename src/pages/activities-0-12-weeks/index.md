@@ -44,9 +44,9 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 ### Engage baby with black and white high contrast cards
 
-We know that black and white cards matter for babies. But did you realize the many different ways you can engage baby with them?! 
-
 ![black and white cards hanging from play gym](/img/image_2.jpg)
+
+We know that black and white cards matter for babies. But did you realize the many different ways you can engage baby with them?! 
 
 **Hang black and white cards from your play gym**. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
 
@@ -72,9 +72,9 @@ To keep your baby on their side, you may find it useful to roll up a small towel
 
 ### The many uses of mobiles
 
-Babies love mobiles! And so should you -- because you can use them in many different ways.
-
 ![baby looking at mobile](/img/image_3.jpg)
+
+Babies love mobiles! And so should you -- because you can use them in many different ways.
 
 **I strategically placed a mobile over Hayden’s changing table**. This made diaper changes hassle free. He was mesmerized by the swirls above him -- especially when they moved.
 
@@ -96,9 +96,9 @@ Then, as he began to become more mobile on his tummy, I used the mobiles to enco
 
 ### Rattle, rattle, rattle
 
-A rattle is a basic toy that can serve many purposes. Use it to get your baby accustomed to different textures and sounds. That’s why I found it useful to have several rattles. 
-
 ![baby holding rattle](/img/image_5.jpg)
+
+A rattle is a basic toy that can serve many purposes. **Use it to get your baby accustomed to different textures and sounds**. That’s why I found it useful to have several rattles. 
 
 Rattles also got my baby accustomed to opening and closing his hands to grasp objects.
 
@@ -108,15 +108,15 @@ He may need some prodding. So gently tap his fingers with the opposite end of th
 
 Once baby has grasped the rattle, then you grab the other end and shake the rattle with him so he can hear the sounds it makes. 
 
-You can also use a rattle for visual tracking. Have your baby engage with the rattle, then move it side to side. 
+**You can also use a rattle for visual tracking**. Have your baby engage with the rattle, then move it side to side. 
 
-Another way to use a rattle is to shake it and see if your baby turns their head in response to the noise.
+Another way to use a rattle is to shake it and **see if your baby turns their head in response to the noise**.
 
 ### Let’s talk
 
-Talk with your baby as much as possible! 
-
 ![](/img/screen-shot-2022-10-06-at-10.24.51-am.png)
+
+Talk with your baby as much as possible! 
 
 What should you talk about? Anything and everything!
 
