@@ -85,6 +85,8 @@ Suggested Item**:
 
 ### **More tummy time fun!**
 
+![Tummy time](/img/img_8850.jpeg)
+
 Use props to make tummy time fun!
 
 Babies love looking at themselves in the mirror. So place baby on his tummy and prop up a mirror in front of him. 
