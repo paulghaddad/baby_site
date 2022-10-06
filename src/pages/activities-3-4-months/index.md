@@ -7,6 +7,8 @@ title: "Play to Learn "
 
 ### Breakfast with mommy (or daddy)
 
+![breakfast with mommy](/img/screen-shot-2022-10-06-at-7.00.34-pm.png)
+
 After I fed Hayden in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
 
 Hayden would sit in his [BabyBjörn bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=), which was placed near the kitchen table, as I
@@ -41,6 +43,8 @@ Suggested Item**:
 [Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
 
 ### Grab or kick it 
+
+![play gym](/img/img_8749.jpeg)
 
 Make grasping objects fun for baby.
 
@@ -235,8 +239,6 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 **[Polar Bear, Polar Bear, What Do You Hear?](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=196MX6JCJMW2T&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F&qid=1663250260&s=audible&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+%2Caudible%2C73&sr=1-1-catcorr)**
 
-
-
 ### It’s laundry time
 
 It seems mundane, but laundry time can be fun and educational.
@@ -249,8 +251,6 @@ I’d continue the same process with shirts, pants, socks, and anything else tha
 
 To break it up, I’d often incorporate a game of peek-a-boo. I’d put a small towel over his face or mine, and he’d pull it off. This would result in giggles, lots of giggles.
 
-
-
 ### Dance to the music
 
 Turn on some beautiful music and listen for a few minutes. I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
@@ -260,8 +260,6 @@ We also liked to “dance.” I’d hold Hayden and we’d just sway to the beat
 **Suggested item:**
 
 [Apple HomePod Mini](https://www.apple.com/homepod-mini/)
-
-
 
 ### Sing, sing, sing!
 
