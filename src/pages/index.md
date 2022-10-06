@@ -11,6 +11,7 @@ description: delete
 intro:
   blurbs:
     - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg
+      url: /activities-0-12-weeks
       text: |-
         *Make tummy time fun 
         *The many uses of mobiles
@@ -19,6 +20,7 @@ intro:
         *Baby Monet
         *Customize your play gym . . . and many more ideas to try!
     - image: /img/screen-shot-2022-09-16-at-9.38.54-am.png
+      url: /activities-3-4-months
       text: |
         *Breakfast with mommy (or daddy!) 
         *Chef baby
@@ -28,6 +30,7 @@ intro:
         *It's story time
         *Aren't baby animals cute?! . . . and many more ideas to try!
     - image: /img/img_9276.jpeg
+      url: /activities-5-6-months
       text: |-
         *Parts of the body 
         *Hide and seek

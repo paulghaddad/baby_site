@@ -1,4 +1,5 @@
 import * as React from "react";
+import { Link } from "gatsby";
 import PropTypes from "prop-types";
 import PreviewCompatibleImage from "../components/PreviewCompatibleImage";
 
@@ -7,17 +8,19 @@ const FeatureGrid = ({ gridItems }) => (
     {gridItems.map((item) => (
       <div key={item.text} className="column is-6">
         <section className="section">
-          <div className="has-text-centered">
-            <div
-              style={{
-                width: "240px",
-                display: "inline-block",
-              }}
-            >
-              <PreviewCompatibleImage imageInfo={item} />
+          <Link to={item.url}>
+            <div className="has-text-centered">
+              <div
+                style={{
+                  width: "240px",
+                  display: "inline-block",
+                }}
+              >
+                <PreviewCompatibleImage imageInfo={item} />
+              </div>
             </div>
-          </div>
-          <p>{item.text}</p>
+            <p>{item.text}</p>
+          </Link>
         </section>
       </div>
     ))}
@@ -29,6 +32,7 @@ FeatureGrid.propTypes = {
     PropTypes.shape({
       image: PropTypes.oneOfType([PropTypes.object, PropTypes.string]),
       text: PropTypes.string,
+      url: PropTypes.string,
     })
   ),
 };
