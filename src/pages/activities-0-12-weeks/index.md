@@ -114,7 +114,11 @@ Another way to use a rattle is to shake it and see if your baby turns their head
 
 ### Let’s talk
 
-Talk with your baby as much as possible! What should you talk about? Anything and everything!
+Talk with your baby as much as possible! 
+
+![](/img/screen-shot-2022-10-06-at-10.24.51-am.png)
+
+What should you talk about? Anything and everything!
 
 Tell him about your day, what you’re having for dinner, what it was like during your childhood, a trip you’ve taken or want to take. 
 
@@ -123,6 +127,8 @@ You can also talk as you do things with your baby, like dressing him. For exampl
 Make eye contact with your baby and have a conversation. Ask him a question, then pause and wait for an answer. Give him time to coo, grunt, or make other noises in return. 
 
 ### Make time for book time 
+
+![Reading books](/img/740a5bee-fcae-4675-865c-9d10fe76ac63.jpeg)
 
 It’s never too early to start reading. I began reading to Hayden as soon as we got home from the hospital, and we haven’t stopped!
 
