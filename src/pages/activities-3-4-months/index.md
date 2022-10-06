@@ -89,6 +89,8 @@ Suggested Item**:
 
 Use props to make tummy time fun!
 
+![](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
+
 Babies love looking at themselves in the mirror. So place baby on his tummy and prop up a mirror in front of him. 
 
 They also love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
