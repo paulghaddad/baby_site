@@ -66,6 +66,8 @@ Also consider handing baby an object to explore while he sits in a [baby bouncer
 
 ### The many uses of mobiles
 
+![baby with mobile](/img/img_8755.jpeg)
+
 Mobiles can have new uses during these months. 
 
 Sure, you can hang a mobile overhead for baby. But that’s just the start. 
