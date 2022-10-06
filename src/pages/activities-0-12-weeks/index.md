@@ -46,7 +46,9 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 We know that black and white cards matter for babies. But did you realize the many different ways you can engage baby with them?! 
 
-Hang black and white cards from your play gym. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
+![black and white cards hanging from play gym](/img/image_2.jpg)
+
+**Hang black and white cards from your play gym**. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
 
 I took three [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), punched a hole in each one and attached them to the play gym with a string. The cards dangled from the top of the play gym. There were images on both sides of the cards, which make them fun to look at -- especially when they moved.
 
@@ -54,11 +56,13 @@ Eventually, he learned to bat at the cards and loved making them move!
 
 Other times I attached the cards to the top of the play gym and to the side of it -- taking full use of the play gym structure. This also gets him to move his head in different directions. My baby loved finding the cards everywhere he looked. 
 
-Visual tracking is another way to use black and white cards. 
+**Visual tracking is another way to use black and white cards**. 
 
 Show a card to your baby and let him engage with it. Then, slowly move the card from one side to the other. The idea is that your baby’s eyes stay glued to the card as they move their head side to side.
 
-You can also place your baby on their side. Then, prop up a card or two across from them. 
+![baby laying on his side, looking at black and white cards](/img/image_1.jpg)
+
+**You can also place your baby on their side. Then, prop up a card or two across from them**. 
 
 To keep your baby on their side, you may find it useful to roll up a small towel and put it behind their backside for support. This is a great way for baby to get practice laying on his side.
 
@@ -70,13 +74,17 @@ To keep your baby on their side, you may find it useful to roll up a small towel
 
 Babies love mobiles! And so should you -- because you can use them in many different ways.
 
-I strategically placed a mobile overHayden’s changing table. This made diaper changes hassle free. He was mesmerized by the swirls above him -- especially when they moved.
+![baby looking at mobile](/img/image_3.jpg)
 
-I also used mobiles above Hayden’s play quilt, where he’d stretch his arms and legs watching and reacting to the shapes floating above him. 
+**I strategically placed a mobile over Hayden’s changing table**. This made diaper changes hassle free. He was mesmerized by the swirls above him -- especially when they moved.
+
+![mobiles](/img/2fe15ecd-f4a1-4349-b320-c19aac68baf4.jpeg)
+
+**I used mobiles above Hayden’s play quilt**,where he’d stretch his arms and legs watching and reacting to the shapes floating above him.
 
 These mobiles were a gift that kept on giving because I used them in different ways as my baby got older and more advanced.
 
-In addition to using these mobiles overhead, I also used them during tummy time. This gave Hayden a different perspective. Because mobiles are so fun to look at, they motivated him to lift that heavy head! 
+In addition to using these mobiles overhead, **I also used them during tummy time**. This gave Hayden a different perspective. Because mobiles are so fun to look at, they motivated him to lift that heavy head! 
 
 Then, as he began to become more mobile on his tummy, I used the mobiles to encourage Hayden to rotate. I’d hold a mobile in front of him, then slowly move around his playmat and he’d follow me. 
 
