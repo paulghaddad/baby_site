@@ -7,6 +7,8 @@ title: "Play to Learn "
 
 ### Make tummy time fun!
 
+![tummy time](/img/3e2a9333-c40b-495b-a709-23719b48bf3c.jpeg)
+
 One day baby will love being on his tummy. Until that day comes, make tummy time fun and interesting with the ideas below.
 
 While baby is on his tummy on his playmat: 
@@ -18,11 +20,15 @@ While baby is on his tummy on his playmat: 
 
 I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)) or artwork ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
 
-Tummy time can be really hard for baby. Ease him into it by laying baby on your chest as you lay flat on the floor or couch. 
+Tummy time can be really hard for baby. 
+
+![tummy time using a pillow](/img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg)
+
+Ease him into it by using a nursing pillow to prop up baby.
+
+You can also have baby lay on your chest as you lay flat on the floor or on a couch. 
 
 Or sit at an incline and rest baby on your chest. I found this way to be very effective early on; it was much easier for my baby to lift that heavy head. 
-
-You can also use a nursing pillow to prop up your baby. 
 
 **Suggested Items:**
 
