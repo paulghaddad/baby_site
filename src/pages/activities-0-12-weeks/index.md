@@ -98,6 +98,8 @@ Then, as he began to become more mobile on his tummy, I used the mobiles to enco
 
 A rattle is a basic toy that can serve many purposes. Use it to get your baby accustomed to different textures and sounds. That’s why I found it useful to have several rattles. 
 
+![baby holding rattle](/img/image_5.jpg)
+
 Rattles also got my baby accustomed to opening and closing his hands to grasp objects.
 
 Here’s what I mean. You hold one end of the rattle and place the other end toward your baby’s hand. The idea is to have your baby grasp the other end of the rattle. 
