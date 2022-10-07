@@ -89,17 +89,19 @@ Suggested Item**:
 
 Use props to make tummy time fun!
 
+Babies love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
+
 ![](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
-Babies love looking at themselves in the mirror. So place baby on his tummy and prop up a mirror in front of him. 
-
-They also love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
+Mirrors are also a lot of fun for babies. They love to look at themselves! So place baby on his tummy and prop up a mirror in front of him. 
 
 I also found it useful to prop up pictures of artwork or baby animals for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of him, which he absolutely loved.
 
 Mobiles were another favorite tummy time item. 
 
-Get baby on his belly, then dangle the mobile in front of baby or to the side. Babies, like my son, love mobiles, and provide the motivation to lift that heavy head!
+Get baby on his belly, then dangle the mobile in front of baby or to the side. Babies love mobiles, and provide the motivation to lift that heavy head!
+
+
 
 **Suggested items**:
 
@@ -135,6 +137,8 @@ Sensory books are great to use with baby while sitting. I’d open up a page in 
 
 ### Chef baby
 
+![Produce](/img/img_9252.jpeg)
+
 As fun as it is to explore toys with baby, it’s equally fun to explore real world objects. 
 
 Kitchen exploration was one of my favorite things to do with Hayden around this age.
@@ -142,6 +146,8 @@ Kitchen exploration was one of my favorite things to do with Hayden around this 
 I’d wash some fruits and veggies, such as an apple, carrot, potato, lime, and bell pepper, in advance and put them in a colander. I’d try to select a variety of colors, shapes, and textures. 
 
 At the kitchen table, I’d sit with Hayden on my lap and we’d explore the colander of produce together -- talking about and touching each one.
+
+![Kitchen utensils](/img/img_9253.jpeg)
 
 I also did this with kitchen objects. I’d select a few items, like a spoon, whisk, and spatula, in advance and place them on the table. Then, we’d touch, hold, and talk about each one. 
 
@@ -160,6 +166,8 @@ Colander
 Measuring cups
 
 ### Make time for mirror time
+
+
 
 Babies love looking at themselves in the mirror! 
 
