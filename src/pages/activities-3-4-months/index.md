@@ -117,6 +117,8 @@ Get baby on his belly, then dangle the mobile in front of baby or to the side. B
 
 ### Sit up with baby and explore
 
+![Baby sitting up looking at toys](/img/screen-shot-2022-10-06-at-8.56.36-pm.png)
+
 Although sitting up is hard work for baby, you can make it fun and interesting! 
 
 I’d sit on the floor with Hayden sitting in front of me. Then, we’d explore objects together, like a ball, teether, or rattle. If he dropped the object, then I’d help him lean over to pick it up. 
@@ -167,7 +169,7 @@ Measuring cups
 
 ### Make time for mirror time
 
-
+![ Baby looking into mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
 Babies love looking at themselves in the mirror! 
 
@@ -193,9 +195,9 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 
 Want to get baby some practice using their hands? Give these ideas a try.
 
-Put a cloth, like a washcloth, on baby’s foot, and he’ll work hard to pull it off. Once he’s mastered this, you do the same game with a small oven mit: stick the mit on his foot and baby will pull it off. 
+Put a cloth, like a washcloth, on baby’s foot, and he’ll work hard to pull it off. Once he’s mastered this, you do the same game with a small oven mitt: stick the mitt on his foot and baby will pull it off. 
 
-You can play similar games using baby’s hands. Put a cloth on baby’s hand, and he’ll pull it off. Then, try a sock or a small oven mit.
+You can play similar games using baby’s hands. Put a cloth on baby’s hand, and he’ll pull it off. Then, try a sock or a small oven mitt.
 
 **Suggested Items**:
 
