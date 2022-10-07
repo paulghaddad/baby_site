@@ -338,13 +338,15 @@ Babies love to empty a box full of things. They’ll have as much fun pulling ev
 
 ### Spice it up!
 
-
+![Spices and herbs](/img/img_9266.jpeg)
 
 Want a great way to introduce baby into the world of food and enliven their sense of smell?!
 
-Then, grab some spices and herbs and explore them with baby.
+**Then, grab some spices and herbs and explore them with baby**.
 
-Hayden loves this activity! Here’s how it works. 
+Hayden loved this activity! Here’s how it works. 
+
+
 
 I sat in a chair next to him, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let Hayden smell it. 
 
