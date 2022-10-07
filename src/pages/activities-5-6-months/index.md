@@ -175,8 +175,6 @@ He’ll also like seeing how familiar objects move differently in water. 
 
 And he’ll delight in watching and moving toys across the cookie sheet.
 
-
-
 **Suggested Items**:
 
 Cookie sheet
@@ -185,9 +183,9 @@ Small plastic bin
 
 Measuring cups
 
+
+
 ### Sit, reach, crawl  
-
-
 
 Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
 
@@ -203,9 +201,11 @@ The best learning takes place when you want to learn something. If there’s a d
 
 ### Mirror, mirror on the wall
 
+![Baby looking in mirror](/img/img_9271.jpeg)
+
 The fascination with mirrors only enhances at this age!
 
-Not only does baby love looking at himself in the mirror. But it’s also a great way to encourage baby to move.
+**Not only does baby love looking at himself in the mirror. But it’s also a great way to encourage baby to move**.
 
 I’d prop up a mirror on the wall. Hayden would see it and slither quickly as possible toward it. 
 
@@ -219,11 +219,13 @@ Mirror
 
 ### Knock down the tower
 
+![Knocking down blocks](/img/img_9298.jpeg)
+
 A small set of blocks makes for endless fascination for baby. 
 
-He’ll love to pick up the blocks and knock them together with his hands. 
+**He’ll love to pick up the blocks and clap them together with his hands**. 
 
-Equally fun is to build a small tower of blocks. Then, baby will come charging over to knock them down. Stack the tower back up, and he’ll gladly knock them back down.
+Equally fun is to **build a small tower of blocks**. Then, baby will come charging over to knock them down. Stack the tower back up, and he’ll gladly knock them back down.
 
 I used this activity to help encourage Hayden to move, when he was in the beginning stages of crawling. I’d make a tower a foot or two away from him. He’d make his way to it, and knock it down. 
 
