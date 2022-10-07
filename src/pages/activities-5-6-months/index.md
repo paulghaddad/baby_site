@@ -241,6 +241,8 @@ Needless to say, we both got our exercise! 
 
 ### It’s time for a trip!
 
+![Travel items](/img/annie-spratt-qyaka7w5umy-unsplash.jpg)
+
 Traveling with a baby or infant is no easy feat. But it’s so worth it. To see the world through a young person’s eyes is nothing short of amazing. 
 
 Now is a great time to pack up and head out. 
