@@ -157,11 +157,13 @@ Before you know it, baby has made a complete rotation on his tummy!
 
 ![Water activity](/img/img_7258.jpeg)
 
-Put some water in a small bin and add a few toys and objects. 
+**Put some water in a small bin and add a few toys and objects**. 
 
 Hayden was still a bit wobbly at this age, so he sat on the floor and I sat behind him. The bin of water was in front of him so he could explore.
 
 Stacking cups or measuring cups are a fun choice for this activity. 
+
+![Pouring water](/img/img_7250.jpeg)
 
 With your help, baby can scoop up some water and pour it out -- hearing (and sometimes feeling!) the splash this makes. 
 
@@ -169,7 +171,11 @@ Baby will love touching the water. Once baby learns he can splash, you’ll like
 
 He’ll also like seeing how familiar objects move differently in water. 
 
-Putting some water with a few toys and objects on a cookie sheet is a fun variant to try.
+**Here’s a fun variant to try: put some water with a few toys and objects on a cookie sheet.** Once again, baby will love to touch and splash in the water. 
+
+And he’ll delight in watching and moving toys across the cookie sheet.
+
+
 
 **Suggested Items**:
 
@@ -180,6 +186,8 @@ Small plastic bin
 Measuring cups
 
 ### Sit, reach, crawl  
+
+
 
 Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
 
