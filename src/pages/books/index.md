@@ -1,22 +1,107 @@
 ---
 templateKey: books-page
 path: /books
-title: Welcome to Learning Babies!
+title: Books for Baby
 ---
-Do you have a little one and wonder:
+A good book is hard to find. I’ve searched high and low for good books for my son. Here are some of his favorites.  
 
-* What activities should I use as my baby grows?
-* What developmental toys should I introduce and when? And where can I buy them?
-* What books should I read to my baby?
+### Nursery Rhymes
 
-I’m Amy, and I’m a writer turned stay at home mom. I’d repeatedly ask myself these questions each month or two as my son, Hayden, got older. I couldn’t find answers to these questions all in one place, so I created Learning Babies.
+[Mother Goose: One Hundred Best-Loved Verses](https://www.amazon.com/Mary-Engelbreits-Mother-Goose-Best-Loved/dp/B000BHHRFI/ref=sr_1_1?keywords=mother+goose+by+mary+engelbreit&qid=1663353730&sr=8-1) by Mary Engelbreit
 
-![baby smiling](/img/02704a92-c1b3-49b9-878e-fd605b9354ef.jpeg "baby smiling")
+### Classics and General Good Books
 
-It provides simple and easy activities organized by age, from 0 to 6 months. I incorporate a little bit of everything: art, nature, sensory play, music, reading, and cooking. I also include the supplies you need and where you can buy them for each activity. 
+[Ten Little Babies](https://www.amazon.com/Ten-Little-Babies-Gyo-Fujikawa/dp/140275700X/ref=sr_1_1?crid=2UR9T259W38D3&keywords=Ten+Little+Babies+by+Gyo+Fujikawa&qid=1663590450&sprefix=ten+little+babies+by+gyo+fujikawa%2Caps%2C87&sr=8-1) by Gyo Fujikawa
 
-I’ll continue to add content for older babies and toddlers over time. So sign up for my newsletter for updates, as well as practical child development ideas.
+The Runaway Bunny by Margaret Wise Brown
 
-I’ve also compiled useful developmental toys by age and a list of books for babies. 
+Ten Little Fingers and Ten Little Toes by Mem Fox
 
-Learning through play is a lot of fun when you have the resources you need to do your job. I hope this website can help you along your journey.
+The Very Hungry Caterpillar by Eric Carle
+
+I Love You to the Moon and Back by Amelia Hepworth\
+Pat the Bunny by Dorothy Kunhardt
+
+Goodnight Moon by Margaret Wise Brown
+
+10 Little Rubber Ducks by Eric Carle
+
+Guess How Much I Love You by Sam McBratney 
+
+Big Red Barn by Margaret Wise Brown
+
+The Very Busy Spider by Eric Carle
+
+Corduroy by Don Freeman
+
+### Animals
+
+Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.
+
+Polar Bear, Polar Bear, What Do You Hear? by Bill Martin Jr.
+
+Brown Bear, Brown Bear, What Do You See? by Bill Martin Jr. 
+
+Dear Zoo by by Rod Campbell
+
+National Geographic Kids Look and Learn: Farm Animals by National Kids
+
+National Geographic Kids Little Kids First Board Book: Animals On the Go by Ruth Musgrave 
+
+National Geographic Kids Little Kids First Board Book: Ocean by National Kids
+
+National Geographic Kids Look and Learn: Baby Animals by National Kids
+
+### Art
+
+A Picnic with Monet by Julie Merberg
+
+Quiet Time with Cassatt by Julie Merberg
+
+A Magical Day with Matisse by Julie Merberg
+
+In the Garden with Van Gogh by Julie Merberg
+
+Dancing with Degas by Julie Merberg
+
+
+
+### Sensory and Flip-the-Flap Books
+
+See, Touch, Feel: A First Sensory Book by by Roger Priddy
+
+See, Touch, Feel: ABC by Roger Priddy
+
+Farm by Tiger Tales
+
+You’re My Little Baby by Eric Carle
+
+Where’s Spot? by Eric Hill
+
+
+
+### Nature and Things in Our World
+
+National Geographic Kids Look and Learn: Things That Go by National Kids
+
+National Geographic Kids Look and Learn: Colors! by National Kids
+
+Dinosaurs, Dinosaurs by Byron Barton
+
+The Very Hungry Caterpillar’s First Fall by Eric Carle
+
+Hello, World! Weather by Jill McDonald
+
+Hello, World! Solar System by Jill McDonald
+
+Freight Train by Donald Crews
+
+
+
+### Travel
+
+Time for a Trip by by Phillis Gershator
+
+All Aboard Pacific Northwest by by Haily Meyers 
+
+B is for Bison by by Greg Paprocki
