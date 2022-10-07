@@ -46,19 +46,15 @@ intro:
   heading: Activities for ages 0-6 months (activities for more age groups coming soon!)
   description: Activities, books, and toys for babies
 main:
-  heading: Great coffee with no compromises
-  description: >
-    We hold our coffee to the highest standards from the shrub to the cup.
-    That’s why we’re meticulous and transparent about each step of the coffee’s
-    journey. We personally visit each farm to make sure the conditions are
-    optimal for the plants, farmers and the local environment.
+  heading: Activities for babies
+  description: "\n"
   image1:
-    alt: A close-up of a paper filter filled with ground coffee
-    image: /img/products-grid3.jpg
+    alt: Play gym
+    image: /img/image_2.jpg
   image2:
-    alt: A green cup of a coffee on a wooden table
-    image: /img/products-grid2.jpg
+    alt: Mirror
+    image: /img/img_9272.jpeg
   image3:
-    alt: Coffee beans
-    image: /img/products-grid1.jpg
+    alt: Finger painting
+    image: /img/img_9233.jpeg
 ---
