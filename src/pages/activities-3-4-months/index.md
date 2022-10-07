@@ -89,9 +89,9 @@ Suggested Item**:
 
 Use props to make tummy time fun!
 
-Babies love looking at other babies. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
+**Babies love looking at other babies**. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
 
-![](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
+![Tummy time with mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
 **Mirrors are also a lot of fun for babies**. They love to look at themselves! So place baby on his tummy and prop up a mirror in front of him. 
 
@@ -123,13 +123,13 @@ And you can **always put an enticing toy in front of baby** while he’s on his 
 
 Although sitting up is hard work for baby, you can make it fun and interesting! 
 
-I’d sit on the floor with Hayden sitting in front of me. Then, we’d explore objects together, like a ball, teether, or rattle. If he dropped the object, then I’d help him lean over to pick it up. 
+I’d **sit on the floor** with Hayden sitting in front of me. Then, we’d explore objects together, like a ball, teether, or rattle. If he dropped the object, then I’d help him lean over to pick it up. 
 
 Other times, I’d place an object to the side or in front of him and he’d practice picking it up himself. 
 
-Dangling an object in front of baby while they’re sitting is another way to grab and explore an object. Plus, it gives baby another perspective of the object.
+**Dangling an object in front of baby** while they’re sitting is another way to grab and explore an object. Plus, it gives baby another perspective of the object.
 
-Sensory books are great to use with baby while sitting. I’d open up a page in a book and Hayden would lean forward to touch and explore.
+**Sensory books** are great to use with baby while sitting. I’d open up a page in a book and Hayden would lean forward to touch and explore.
 
 **Suggested items**:
 
@@ -143,13 +143,13 @@ Sensory books are great to use with baby while sitting. I’d open up a page in 
 
 ![Produce](/img/img_9252.jpeg)
 
-As fun as it is to explore toys with baby, it’s equally fun to explore real world objects. 
+As fun as it is to explore toys with baby, it’s equally fun to **explore real world objects**. 
 
 Kitchen exploration was one of my favorite things to do with Hayden around this age.
 
 I’d wash some fruits and veggies, such as an apple, carrot, potato, lime, and bell pepper, in advance and put them in a colander. I’d try to select a variety of colors, shapes, and textures. 
 
-At the kitchen table, I’d sit with Hayden on my lap and we’d explore the colander of produce together -- talking about and touching each one.
+At the kitchen table, I’d sit with Hayden on my lap and we’d explore the c**olander of produce together** -- talking about and touching each one.
 
 ![Kitchen utensils](/img/img_9253.jpeg)
 
@@ -196,6 +196,8 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 [Bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
 
 ### Get those hands moving
+
+![Hands](/img/screen-shot-2022-10-06-at-9.23.16-pm.png)
 
 Want to get baby some practice using their hands? Give these ideas a try.
 
@@ -277,19 +279,15 @@ I’d continue the same process with shirts, pants, socks, and anything else tha
 
 To break it up, I’d often incorporate a game of peek-a-boo. I’d put a small towel over his face or mine, and he’d pull it off. This would result in giggles, lots of giggles.
 
-### Dance to the music
+### Sing and Dance
 
-Turn on some beautiful music and listen for a few minutes. I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
+![Record player](/img/adrian-korte-5gn2soeac40-unsplash.jpg)
+
+**Turn on some beautiful music and listen for a few minutes**. I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
 
 We also liked to “dance.” I’d hold Hayden and we’d just sway to the beat. 
 
-**Suggested item:**
-
-[Apple HomePod Mini](https://www.apple.com/homepod-mini/)
-
-### Sing, sing, sing!
-
-Baby loves the sound of your voice. He’ll give you lots of smiles as you sing the words to even the most basic of songs. 
+**Baby loves the sound of your voice**. He’ll give you lots of smiles as you sing the words to even the most basic of songs. 
 
 These are some of the songs Hayden loved at this age:
 
@@ -297,6 +295,12 @@ These are some of the songs Hayden loved at this age:
 * Old McDonald
 * The More We Sing Together 
 * Mr. Golden Sun
+
+**Suggested item:**
+
+[Apple HomePod Mini](https://www.apple.com/homepod-mini/)
+
+
 
 ### E﻿xplore Nature
 
