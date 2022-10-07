@@ -67,6 +67,8 @@ This game may be hard for baby at first. But soon enough he’ll love it! Plus i
 
 ### Reading is fun!
 
+![Lots of books](/img/alfons-morales-ylswjsy7stw-unsplash.jpg)
+
 This is such a fun age to read with baby!
 
 Hayden loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm, grab the page with his hand, and push it over. I had to prompt him initially, but now he does it on his own. He loves being involved in the process!
@@ -89,11 +91,13 @@ And, of course, sensorial books continued to be a hit. 
 
 ### Hide and seek
 
+![Hide and seek with measuring cups](/img/img_9264.jpeg)
+
 The simplest of games can make for endless entertainment for baby. Hide and seek is one of them. 
 
-Take a few washcloths (ideally they’re cloths of different colors) and hide three or four balls, one under each cloth. Station them out of reach for baby to encourage him to move (or slither) to them. He’ll delight in pulling off the cloths and finding the wooden balls. 
+Take a few washcloths (ideally they’re cloths of different colors) and **hide three or four balls, one under each cloth**. Station them out of reach for baby to encourage him to move (or slither) to them. He’ll delight in pulling off the cloths and finding the wooden balls. 
 
-You can also use measuring cups to hide the wooden balls. Hayden loved this!  
+You can also **use measuring cups to hide the wooden balls**. Hayden loved this!  
 
 **Suggested Items**:
 
@@ -105,15 +109,25 @@ Measuring cups
 
 ### Fun with measuring cups
 
+![Measuring cups](/img/screen-shot-2022-10-07-at-10.13.59-am.png)
+
 Who knew measuring cups could be so much fun for baby?! 
 
-Well, they certainly were for Hayden! We used them in different ways. One of his favorites was to simply pull out each cup when they’re stacked inside each other. 
+Well, they certainly were for Hayden! We used them in different ways. 
+
+One of his favorites was to simply pull out each cup when they’re stacked inside each other. 
+
+![Measuring cups stacked up](/img/screen-shot-2022-10-07-at-10.14.56-am.png)
 
 He also loved to knock them over when I’d stack them up like a tower. 
+
+![](/img/screen-shot-2022-10-07-at-10.15.49-am.png)
 
 It’s also fun to put a ball in each cup, and have him pull the ball out of the cup. 
 
 He’d also use the handle to dump the ball, causing it to roll. Then, he’d want to chase after it!
+
+![Hide and seek with measuring cups](/img/img_9264.jpeg)
 
 And, of course, there’s “hide and seek.” Hide a ball under each cup and have baby find them.
 
