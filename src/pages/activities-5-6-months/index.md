@@ -243,7 +243,7 @@ Needless to say, we both got our exercise! 
 
 ![Travel items](/img/annie-spratt-qyaka7w5umy-unsplash.jpg)
 
-Traveling with a baby or infant is no easy feat. But it’s so worth it. To see the world through a young person’s eyes is nothing short of amazing. 
+Traveling with a baby or infant is no easy feat. But it’s so worth it. **To see the world through a young person’s eyes is nothing short of amazing**. 
 
 Now is a great time to pack up and head out. 
 
@@ -255,7 +255,7 @@ But this little trip served its many purposes. 
 
 First, it exposed our son to a new environment and landscape. A house in the middle of the woods offered many new things to look at and explore. Second, it gave him practice traveling. Above all, it provided family bonding time.
 
-Having a checklist -- that contains all of the things you need to bring for baby -- was a key learning from this experience. A checklist will give you all the peace of mind you need when you’re frantically trying to make it out the door. 
+Have a checklist that contains all of the things you need to bring for baby. It'll give you all the peace of mind you need when you’re frantically trying to make it out the door. 
 
 **Suggested Item**s:
 
@@ -266,6 +266,8 @@ To warm Hayden up to the idea of traveling, I purchased a few travel-related boo
 * [All Aboard Pacific Northwest: A Recreation Primer](https://www.amazon.com/gp/product/1423646010/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
 ### 3 art projects to try
+
+![Water art](/img/img_9276.jpeg)
 
 Doing art projects with Hayden was one of the things I looked forward to most during this age. Once he could sit up in his high chair that vision became a reality. 
 
@@ -281,6 +283,8 @@ Then, let him touch or grab the paper. It’s fun to make hand prints, too. You 
 
 **2. Finger paint**
 
+![Finger painting](/img/img_9233.jpeg)
+
 I like [this simple recipe](https://www.google.com/search?q=homemade+finger+paint+for+babies&oq=homemade+finger+&aqs=chrome.1.0i512j0i20i263i512j0i512j69i57j0i512l2j69i60l2.4204j0j4&sourceid=chrome&ie=UTF-8) to make homemade finger paint, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
 
 Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
@@ -291,7 +295,11 @@ To keep things relatively clean, put baby in a [mess-proof bib](https://www.amaz
 
 **3. Abstract art**
 
+![](/img/img_9285.jpeg)
+
 Release baby’s inner Jackson Pollock with this fun abstract art activity. 
+
+![](/img/img_9280.jpeg)
 
 Place a few [drops of paint](https://www.amazon.com/gp/product/B00004UBH2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) on a piece of paper. [Construction paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) is ideal for to help prevent the paint from leaking through. 
 
@@ -309,6 +317,8 @@ Now baby can run their fingers over the drops of paint and squish the paint drop
 * [Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
 
 ### Sensory boxes: touch, feel, pull
+
+
 
 Help baby develop his senses by creating sensory boxes, using everyday items from home. 
 
