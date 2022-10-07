@@ -93,15 +93,17 @@ Babies love looking at other babies. That’s why I’d open up a board book abo
 
 ![](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
-Mirrors are also a lot of fun for babies. They love to look at themselves! So place baby on his tummy and prop up a mirror in front of him. 
+**Mirrors are also a lot of fun for babies**. They love to look at themselves! So place baby on his tummy and prop up a mirror in front of him. 
 
-I also found it useful to prop up pictures of artwork or baby animals for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of him, which he absolutely loved.
+I also found it useful to **prop up pictures of artwork or baby animals** for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of him, which he absolutely loved.
 
-Mobiles were another favorite tummy time item. 
+**Mobiles were another favorite** tummy time item. 
 
 Get baby on his belly, then dangle the mobile in front of baby or to the side. Babies love mobiles, and provide the motivation to lift that heavy head!
 
+![Tummy time with toys](/img/screen-shot-2022-10-06-at-8.59.15-pm.png)
 
+And you can **always put an enticing toy in front of baby** while he’s on his tummy.
 
 **Suggested items**:
 
@@ -183,6 +185,8 @@ A mirror is also great to use during tummy time. Prop a mirror up so baby can st
 
 ### Bubble time!
 
+![Bubbles](/img/drew-beamer-hk6e4uxjmgo-unsplash.jpg)
+
 Bubbles are such a thrill for baby!  
 
 Since they’re such a hit, I keep bubbles easily accessible: in the car, stroller, garage, and back porch. I like [Bubble Tree’s bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1) because they come in a pack of four, are non-toxic, and the bubble solution is in an aluminum bottle.
@@ -192,6 +196,8 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 [Bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
 
 ### Get those hands moving
+
+
 
 Want to get baby some practice using their hands? Give these ideas a try.
 
