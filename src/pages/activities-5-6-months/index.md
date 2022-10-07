@@ -69,9 +69,9 @@ This game may be hard for baby at first. But soon enough he’ll love it! Plus i
 
 This is such a fun age to read with baby!
 
-Hayden loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm and push the page over. He loved being involved in the process.
+Hayden loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm, grab the page with his hand, and push it over. I had to prompt him initially, but now he does it on his own. He loves being involved in the process!
 
-He also loved lift-the-flap books, like Dear Zoo. 
+He also loved lift-the-flap books, like *Dear Zoo*. 
 
 And, of course, sensorial books continued to be a hit. 
 
