@@ -7,23 +7,25 @@ title: "Play to Learn "
 
 ### **Parts of the body**
 
+![Learning parts of the body with baby](/img/screen-shot-2022-10-07-at-9.49.09-am.png)
+
 Let baby learn about the different parts of his body. 
 
-Sit or lay next to baby on his playmat, and point out his different facial features: nose, ears, chin. Say each word as you touch each part. For example, say “this is your left leg” as you touch his left leg. 
+**Sit or lay next to baby on his playmat, and point out his different facial features**: nose, ears, chin. Say each word as you touch each part. For example, say “this is your left leg” as you touch his left leg. 
 
-You can also do this activity with a mirror, so baby can see his nose when you touch it and say the word.
+**You can also do this activity with a mirror**, so baby can see his nose when you touch it and say the word.
 
 Conclude this “parts of the body” activity with the song “Head, Shoulders, Knees, and Toes.” This always results in many smiles and giggles!
 
-### Wooden ball pick up
+### Ball pick up
 
 It’s so simple, but so beneficial and fun for baby!
 
-Sit on the floor with baby sitting in front of you. Then, give baby a small wooden ball to hold. 
+Sit on the floor with baby sitting in front of you. Then, give baby a small ball to hold. I used a wooden ball.
 
 Inevitably, baby will drop the ball. At this point, encourage him to pick it back up. Or he may do this on his own.
 
-It’s hard to do because a smooth wooden ball rolls, and can be hard to grasp. But this gives baby great practice in building hand-eye coordination. 
+It’s hard to do because a ball rolls, and can be hard to grasp. But this gives baby great practice in building hand-eye coordination. 
 
 At the same time, he builds all of the muscles that are involved in the sitting position. 
 
@@ -39,9 +41,17 @@ In fact, it’s great because now baby has to figure out how to get out of the s
 
 ### Catch
 
+![Rolling ball on table](/img/fbf46f70-3c1f-44ab-8025-a46cc8435a9a.jpeg)
+
 It’s not too early to start playing catch -- well a modified version, at least, for baby. I got this idea from Dr. Peter Vishton’s online course, Scientific Secrets for Raising Kids Who Thrive, and it’s a good one.
 
-Here’s how it works. Sit at a table, like your kitchen or dining room table, with baby on your lap. Use a wood or rubber ball and roll the ball to baby. 
+Here’s how it works. Sit at a table, like your kitchen or dining room table, with baby on your lap. 
+
+![Rolling ball on table with baby extending arms](/img/screen-shot-2022-10-07-at-10.01.50-am.png)
+
+Use a wood or rubber ball and roll the ball to baby. 
+
+![Baby catches ball ](/img/screen-shot-2022-10-07-at-10.03.32-am.png)
 
 The aim is for baby to extend one or both hands to “catch” the rolling ball. 
 
@@ -49,7 +59,7 @@ You can roll the ball straight in front of baby. I found this to be the easiest 
 
 You can also roll it from the side. Or roll it directly toward one hand in attempt for baby to extend that hand to reach for it.
 
-This game is a great way to build hand-eye coordination.
+This game may be hard for baby at first. But soon enough he’ll love it! Plus it’s great for developing hand-eye coordination. 
 
 **Suggested Item**:
 
