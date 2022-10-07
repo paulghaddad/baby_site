@@ -153,19 +153,23 @@ Before you know it, baby has made a complete rotation on his tummy!
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
-### Water time: a sensory experience
+### Splish splash water time fun!
 
+![Water activity](/img/img_7258.jpeg)
 
+Put some water in a small bin and add a few toys and objects. 
 
-Here’s a fun sensory experience for baby: put some water on a cookie sheet and put a few objects, like measuring cups, on top. Or you can fill a small plastic bin with water. 
+Hayden was still a bit wobbly at this age, so he sat on the floor and I sat behind him. The bin of water was in front of him so he could explore.
 
-Sit on the floor with baby sitting in front of you. The cookie sheet or bin should be in front of baby, who can now explore!
+Stacking cups or measuring cups are a fun choice for this activity. 
 
-Baby will love touching the water. He’ll also like seeing how familiar objects move differently in water. 
+With your help, baby can scoop up some water and pour it out -- hearing (and sometimes feeling!) the splash this makes. 
 
-Measuring cups are a fun choice for this activity. With your help, baby can scoop up some water and pour it out -- hearing (and sometimes feeling!) the splash this makes. 
+Baby will love touching the water. Once baby learns he can splash, you’ll likely find that water goes everywhere. So I found it useful to lay a towel on the floor before starting this activity.
 
-Once baby learns he can splash, you’ll likely find that water goes everywhere. So I found it useful to lay a towel on the floor before starting this activity. 
+He’ll also like seeing how familiar objects move differently in water. 
+
+Putting some water with a few toys and objects on a cookie sheet is a fun variant to try.
 
 **Suggested Items**:
 
