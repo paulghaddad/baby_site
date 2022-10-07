@@ -197,8 +197,6 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 
 ### Get those hands moving
 
-
-
 Want to get baby some practice using their hands? Give these ideas a try.
 
 Put a cloth, like a washcloth, on baby’s foot, and he’ll work hard to pull it off. Once he’s mastered this, you do the same game with a small oven mitt: stick the mitt on his foot and baby will pull it off. 
@@ -212,6 +210,8 @@ Washcloth
 Small oven mit
 
 ### Aren’t baby animals cute?!
+
+![Baby animal](/img/adam-mosley-4sepxkg8xzw-unsplash.jpg)
 
 Expose your baby to our beautiful world! 
 
@@ -231,7 +231,7 @@ We’ve been doing this for months and love it! It’s especially fun now that h
 
 This 3 to 4 month age is also when sensory books became a big hit with Hayden. 
 
-The sitting position was the best way for him to engage with these books. 
+I found that sitting on the floor was the best way to engage with these books at this age.
 
 So he’d be in the sitting position, and I’d sit behind him for support. I’d put a sensory book on his legs or on the floor in front of him. Then, he’d lean forward to touch the book.
 
@@ -263,11 +263,15 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 ### It’s laundry time
 
+![Laundry](/img/annie-spratt-5tfci4nj6b4-unsplash.jpg)
+
 It seems mundane, but laundry time can be fun and educational.
 
 I’d have Hayden “help” me fold a basket of laundry. I’d pull out a towel, for example, and have him touch, hold, and explore it. 
 
-Then, we’d “talk” about it. I’d describe the texture and color. I’d also explain when and why we use kitchen towels, for example.
+Then, we’d “talk” about it. 
+
+I’d describe the texture and color. I’d also explain when and why we use kitchen towels, for example.
 
 I’d continue the same process with shirts, pants, socks, and anything else that was in the laundry basket.
 
@@ -295,6 +299,8 @@ These are some of the songs Hayden loved at this age:
 * Mr. Golden Sun
 
 ### E﻿xplore Nature
+
+![Tree](/img/niko-photos-tgtvxeor_rs-unsplash.jpg)
 
 Make time for nature. Simply stand in front of a window and look outside, and talk about what you see. 
 
