@@ -39,39 +39,29 @@ const Navbar = () => {
               </Link>
             </li>
             <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/activities-0-12-weeks">
-                Activities for 0-12 Weeks
+              <Link className="navbar-item" to="/books">
+                Books
               </Link>
             </li>
             <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/activities-3-4-months">
-                Activities for 3-4 Months
+              <Link className="navbar-item" to="/toys">
+                Toys
               </Link>
             </li>
             <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/activities-5-6-months">
-                Activities for 5-6 Months
+              <Link className="navbar-item" to="/baby-log">
+                Baby Log
               </Link>
             </li>
             <li className="navbar-item" style={{padding: "0px"}}>
-            <Link className="navbar-item" to="/products">
-              Products
-            </Link>
+              <Link className="navbar-item" to="/newsletter">
+                  Newsletter
+              </Link>
             </li>
             <li className="navbar-item" style={{padding: "0px"}}>
-            <Link className="navbar-item" to="/blog">
-              Blog
-            </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-            <Link className="navbar-item" to="/contact">
-              Contact
-            </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-            <Link className="navbar-item" to="/contact/examples">
-              Form Examples
-            </Link>
+              <Link className="navbar-item" to="/blog">
+                Blog
+              </Link>
             </li>
           <li className="navbar-end has-text-centered">
             <a

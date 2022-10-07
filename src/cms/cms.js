@@ -7,7 +7,7 @@ import Activities012PagePreview from './preview-templates/Activities012PagePrevi
 import Activities34PagePreview from './preview-templates/Activities34PagePreview'
 import Activities56PagePreview from './preview-templates/Activities56PagePreview'
 import BlogPostPreview from './preview-templates/BlogPostPreview'
-import ProductPagePreview from './preview-templates/ProductPagePreview'
+import BooksPagePreview from './preview-templates/BooksPagePreview'
 import IndexPagePreview from './preview-templates/IndexPagePreview'
 
 CMS.registerMediaLibrary(uploadcare)
@@ -18,5 +18,5 @@ CMS.registerPreviewTemplate('about', AboutPagePreview)
 CMS.registerPreviewTemplate('activities-0-12-weeks', Activities012PagePreview)
 CMS.registerPreviewTemplate('activities-3-4-months', Activities34PagePreview)
 CMS.registerPreviewTemplate('activities-5-6-months', Activities56PagePreview)
-CMS.registerPreviewTemplate('products', ProductPagePreview)
+CMS.registerPreviewTemplate('books', BooksPagePreview)
 CMS.registerPreviewTemplate('blog', BlogPostPreview)
