@@ -346,7 +346,7 @@ Want a great way to introduce baby into the world of food and enliven their sens
 
 Hayden loved this activity! Here’s how it works. 
 
-
+![Smelling spices](/img/45e7e68d-e72b-4d4d-bf35-fb7fc7d17805.jpeg)
 
 I sat in a chair next to him, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let Hayden smell it. 
 
@@ -354,7 +354,9 @@ I did the same thing with herbs. I talked about the spice or herb, what it smell
 
 Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
 
-### Does your baby know their fruits and veggies?
+### Get to know your fruits and veggies!
+
+![Produce](/img/img_9252.jpeg)
 
 Want a great way to introduce fruits and veggies to baby -- and enliven their senses in the process?
 
@@ -372,7 +374,7 @@ A﻿ variety of fruits and veggies
 
 ### A budding chef
 
-Now is a great time to involve baby with some basic recipes. 
+**Now is a great time to involve baby in the kitchen**. 
 
 In fact, Hayden has “helped” me make several of his purees. We made a banana puree together, for example. And it was a lot of fun. 
 
@@ -382,7 +384,11 @@ He watched enthusiastically as I sliced the bananas and placed them in the food 
 
 This simple activity was a multi-sensorial experience.
 
-## Get singing!
+**You can even involve baby in some basic recipes**. Hayden has “helped” me make pumpkin bread and spice cake. Although he’s not eating these things yet, I still involve him in the process -- and he loves it! 
+
+After I fill a measuring cup with flour, he’ll grab the cup handle and together we’ll dump it into the mixing bowl. Later, we’ll both hold the spatula and mix the ingredients together. 
+
+## Songs babies will love!
 
 Babies love to hear you sing, even if you’re out of tune like me. 
 
