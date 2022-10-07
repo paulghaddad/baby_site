@@ -318,11 +318,11 @@ Now baby can run their fingers over the drops of paint and squish the paint drop
 
 ### Sensory boxes: touch, feel, pull
 
-
+![Bathroom sensory box](/img/img_9263.jpeg)
 
 Help baby develop his senses by creating sensory boxes, using everyday items from home. 
 
-It’s fun to create themed sensory boxes. Just take a small box or basket and fill it with a handful or so of times. 
+It’s fun to create themed sensory boxes. **Just take a small box or basket and fill it with a handful or so of times**. 
 
 Here are some sensory box ideas to consider:
 
@@ -337,6 +337,8 @@ Then have baby sit up and pull out each object from the box. 
 Babies love to empty a box full of things. They’ll have as much fun pulling everything out as they will touching and exploring each object.
 
 ### Spice it up!
+
+
 
 Want a great way to introduce baby into the world of food and enliven their sense of smell?!
 
