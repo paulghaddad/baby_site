@@ -139,9 +139,11 @@ Measuring cups
 
 ### Get baby moving with mobiles
 
+![Baby moving with mobile](/img/img_9307.jpeg)
+
 By now baby loves being on his tummy. The question is: how can you get baby to realize he can move while on his tummy?
 
-Use the mobiles from baby’s newborn days!
+**Use the mobiles from baby’s newborn days**!
 
 Once baby is on his tummy, dangle a mobile in front of him. Then, slowly move (with the mobile in hand) to one side. Baby will follow by rotating on their tummy. Keep moving and baby will keep following the mobile. 
 
@@ -152,6 +154,8 @@ Before you know it, baby has made a complete rotation on his tummy!
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
 ### Water time: a sensory experience
+
+
 
 Here’s a fun sensory experience for baby: put some water on a cookie sheet and put a few objects, like measuring cups, on top. Or you can fill a small plastic bin with water. 
 
