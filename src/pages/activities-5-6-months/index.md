@@ -185,19 +185,29 @@ Measuring cups
 
 ## **9.** Sit, reach, crawl  
 
+![Baby sitting ](/img/img_9491.jpeg)
+
 Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
 
 He just sat there, looking at it. I could see him thinking: “what do I do now?!”
 
 Thus began a game that we liked to play, which helped him learn how to get out of the sitting position, so he could retrieve the toy.
 
-**Begin with baby in a sitting position and station a desired toy out of reach**. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
+Begin with baby in a sitting position and station a desired toy out of reac**h**. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
 
-**Baby will lean forward and try to reach for the toy**. 
+![Baby leaning forward from sitting position](/img/img_9492.jpeg)
 
-**Help him transition** out of the sitting position and into the crawling one. Then, once baby is safely on the floor, let him go at it and get his reward -- the toy.
+Baby will lean forward and try to reach for the toy. 
 
-The best learning takes place when you want to learn something. If there’s a desired toy, baby will do what it takes to get it, while also learning a new skill along the way.
+![Baby getting into crawling position](/img/img_9497.jpeg)
+
+Help him transition out of the sitting position and into the crawling one. 
+
+![Baby getting the ball](/img/img_9499.jpeg)
+
+Then, once baby is safely on the floor, let him go at it and get his reward -- the toy.
+
+The best learning takes place when you *want* to learn something. If there’s a desired toy, baby will do what it takes to get it, while also learning a new skill along the way.
 
 ## **10.** Mirror, mirror on the wall
 
