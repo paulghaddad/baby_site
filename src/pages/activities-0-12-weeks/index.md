@@ -236,7 +236,7 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 
 [Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-### Baby Monet
+## Baby Monet
 
 I began sharing my passion for art with Hayden very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
 
@@ -248,7 +248,7 @@ This was such a hit. So I did the same thing with baby animals and beautiful pla
 
 This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
 
-**Suggested Items**:
+#### **Suggested Items**:
 
 [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
 
