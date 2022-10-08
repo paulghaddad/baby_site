@@ -5,70 +5,61 @@ title: "Play to Learn "
 ---
 ## Activities 0-12 Weeks
 
-## 1. Make tummy time fun!
+## 1. Artist baby
 
-![tummy time](/img/3e2a9333-c40b-495b-a709-23719b48bf3c.jpeg)
+![](/img/pexels-steve-johnson-1269968.jpg)
 
-One day baby will love being on his tummy. Until that day comes, make tummy time fun and interesting with the ideas below.
+I began sharing my passion for art with Hayden very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
 
-While baby is on his tummy on his playmat: 
+Then, I tore off a few pages from a calendar. **We’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.**
 
-* **Prop up some [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)** against the wall for baby to look at. 
-* **Lean a mirror against the wall** so baby can look at himself.  
-* **Prop a board book against the wall**, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) or [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), while Hayden was on his tummy.
-* **Use a mobile during tummy time**. Hayden loved this! It offered a new perspective and motivated him to lift that heavy head!
+I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
 
-I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)) or artwork ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
+This was such a hit!
 
-Tummy time can be really hard for baby. 
+**So I did the same thing with baby animals and beautiful places**. I purchased a [baby animal](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1) and [national park](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3) calendars. 
 
-![tummy time using a pillow](/img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg)
+This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
 
-Ease him into it by using a nursing pillow to prop up baby.
-
-You can also have baby lay on your chest as you lay flat on the floor or on a couch. 
-
-Or sit at an incline and rest baby on your chest. I found this way to be very effective early on; it was much easier for my baby to lift that heavy head. 
-
-#### **Suggested Items:**
-
-[beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) 
-
-[Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
-
-[Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+#### **Suggested Items**:
 
 [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
 
 [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-## 2. Engage baby with black and white high contrast cards
+[N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
 
-![black and white cards hanging from play gym](/img/image_2.jpg)
+## 2. Customize your play gym
 
-We know that black and white cards matter for babies. But did you realize the many different ways you can engage baby with them?! 
+![Play gym with black and white cards ](/img/image_2.jpg)
 
-**Hang black and white cards from your play gym**. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
+Early on, Hayden wasn’t engaging with some of the items that came with his play gym.
 
-I took three [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), punched a hole in each one and attached them to the play gym with a string. The cards dangled from the top of the play gym. There were images on both sides of the cards, which make them fun to look at -- especially when they moved.
+So I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)S﻿o I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1).
 
-Eventually, he learned to bat at the cards and loved making them move!
+I punched a hole in each one and attached it to the play gym structure with a string. The cards dangled from the top of the play gym. There are images on both sides of the cards, which made them fun to look at -- especially when they moved.
 
-Other times I attached the cards to the top of the play gym and to the side of it -- taking full use of the play gym structure. This also gets him to move his head in different directions. My baby loved finding the cards everywhere he looked. 
+![Play gym with objects ](/img/img_8749.jpeg)
 
-**Visual tracking is another way to use black and white cards**. 
+This worked great until he was ready to grasp objects. 
 
-Show a card to your baby and let him engage with it. Then, slowly move the card from one side to the other. The idea is that your baby’s eyes stay glued to the card as they move their head side to side.
+So I customized it again. 
 
-![baby laying on his side, looking at black and white cards](/img/image_1.jpg)
+I took objects -- rattles and teethers -- and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
 
-**You can also place your baby on their side. Then, prop up a card or two across from them**. 
+#### **Suggested Items**:
 
-To keep your baby on their side, you may find it useful to roll up a small towel and put it behind their backside for support. This is a great way for baby to get practice laying on his side.
-
-#### **Suggested Item:**
+[Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
+
+[Kringelring Clutching Toy](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/haba-kringelring-clutching-toy)
+
+[Organic Teething Ring - Bear](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/senger-organic-teething-ring-animal-baby-bear)
+
+[Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
 ## 3. The many uses of mobiles
 
@@ -204,58 +195,69 @@ I’d hold my baby and walk around our backyard, narrating what I’d see and he
 
 You can also **introduce elements of nature:** pull off a leaf from a tree or pick a flower, show it to him, and have him touch it.
 
-## 10. Customize your play gym
+## 10. Engage baby with black and white high contrast cards
 
-![Play gym with black and white cards ](/img/image_2.jpg)
+![black and white cards hanging from play gym](/img/image_2.jpg)
 
-Early on, Hayden wasn’t engaging with some of the items that came with his play gym.
+We know that black and white cards matter for babies. But did you realize the many different ways you can engage baby with them?! 
 
-So I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)S﻿o I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1).
+**Hang black and white cards from your play gym**. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
 
-I punched a hole in each one and attached it to the play gym structure with a string. The cards dangled from the top of the play gym. There are images on both sides of the cards, which made them fun to look at -- especially when they moved.
+I took three [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), punched a hole in each one and attached them to the play gym with a string. The cards dangled from the top of the play gym. There were images on both sides of the cards, which make them fun to look at -- especially when they moved.
 
-![Play gym with objects ](/img/img_8749.jpeg)
+Eventually, he learned to bat at the cards and loved making them move!
 
-This worked great until he was ready to grasp objects. 
+Other times I attached the cards to the top of the play gym and to the side of it -- taking full use of the play gym structure. This also gets him to move his head in different directions. My baby loved finding the cards everywhere he looked. 
 
-So I customized it again. 
+**Visual tracking is another way to use black and white cards**. 
 
-I took objects -- rattles and teethers -- and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
+Show a card to your baby and let him engage with it. Then, slowly move the card from one side to the other. The idea is that your baby’s eyes stay glued to the card as they move their head side to side.
 
-#### **Suggested Items**:
+![baby laying on his side, looking at black and white cards](/img/image_1.jpg)
 
-[Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
+**You can also place your baby on their side. Then, prop up a card or two across from them**. 
+
+To keep your baby on their side, you may find it useful to roll up a small towel and put it behind their backside for support. This is a great way for baby to get practice laying on his side.
+
+#### **Suggested Item:**
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-[Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
 
-[Kringelring Clutching Toy](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/haba-kringelring-clutching-toy)
 
-[Organic Teething Ring - Bear](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/senger-organic-teething-ring-animal-baby-bear)
+## 11. Make tummy time fun!
 
-[Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+![tummy time](/img/3e2a9333-c40b-495b-a709-23719b48bf3c.jpeg)
 
-## 11. Artist baby
+One day baby will love being on his tummy. Until that day comes, make tummy time fun and interesting with the ideas below.
 
-![](/img/pexels-steve-johnson-1269968.jpg)
+While baby is on his tummy on his playmat: 
 
-I began sharing my passion for art with Hayden very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
+* **Prop up some [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)** against the wall for baby to look at. 
+* **Lean a mirror against the wall** so baby can look at himself.  
+* **Prop a board book against the wall**, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) or [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), while Hayden was on his tummy.
+* **Use a mobile during tummy time**. Hayden loved this! It offered a new perspective and motivated him to lift that heavy head!
 
-Then, I tore off a few pages from a calendar. **We’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.**
+I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)) or artwork ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
 
-I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
+Tummy time can be really hard for baby. 
 
-This was such a hit!
+![tummy time using a pillow](/img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg)
 
-**So I did the same thing with baby animals and beautiful places**. I purchased a [baby animal](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1) and [national park](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3) calendars. 
+Ease him into it by using a nursing pillow to prop up baby.
 
-This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
+You can also have baby lay on your chest as you lay flat on the floor or on a couch. 
 
-#### **Suggested Items**:
+Or sit at an incline and rest baby on your chest. I found this way to be very effective early on; it was much easier for my baby to lift that heavy head. 
+
+#### **Suggested Items:**
+
+[beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) 
+
+[Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+
+[Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
 
 [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
 
 [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
-
-[N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
