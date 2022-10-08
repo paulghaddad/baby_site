@@ -301,7 +301,7 @@ It’s fun to make hand prints, too. You can also use [large art brushes](https:
 
 ![Finger painting](/img/img_9233.jpeg)
 
-I like [this simple recipe](https://www.google.com/search?q=homemade+finger+paint+for+babies&oq=homemade+finger+&aqs=chrome.1.0i512j0i20i263i512j0i512j69i57j0i512l2j69i60l2.4204j0j4&sourceid=chrome&ie=UTF-8) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
+I like [this simple recipe](https://rainydaymum.co.uk/baby-play-finger-painting/) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
 
 Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
 
