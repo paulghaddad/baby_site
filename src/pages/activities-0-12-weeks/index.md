@@ -105,7 +105,7 @@ Another way to use a rattle is to shake it and **see if your baby turns their he
 
 ## 5. Let’s talk
 
-![](/img/screen-shot-2022-10-06-at-10.24.51-am.png)
+![Talking to baby](/img/screen-shot-2022-10-06-at-10.24.51-am.png)
 
 Talk with your baby as much as possible! 
 
