@@ -20,3 +20,7 @@ I’ll continue to add content for older babies and toddlers over time. So sign 
 I’ve also compiled useful developmental toys by age and a list of books for babies. 
 
 Learning through play is a lot of fun when you have the resources you need to do your job. I hope this website can help you along your journey.
+
+
+
+E﻿mail me at: [amy@amymhaddad.com]("mailto:amy@amymhaddad.com")
