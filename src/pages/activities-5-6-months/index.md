@@ -115,21 +115,21 @@ Who knew measuring cups could be so much fun for baby?! 
 
 Well, they certainly were for Hayden! We used them in different ways. 
 
-One of his favorites was to simply pull out each cup when they’re stacked inside each other. 
+One of his favorites was to simply **pull out each cup when they’re stacked inside each other**. 
 
 ![Measuring cups stacked up](/img/screen-shot-2022-10-07-at-10.14.56-am.png)
 
-He also loved to knock them over when I’d stack them up like a tower. 
+He also loved to knock them over when I’d **stack them up like a tower**. 
 
 ![](/img/screen-shot-2022-10-07-at-10.15.49-am.png)
 
-It’s also fun to put a ball in each cup, and have him pull the ball out of the cup. 
+It’s also fun to **put a ball in each cup**, and have him pull the ball out of the cup. 
 
 He’d also use the handle to dump the ball, causing it to roll. Then, he’d want to chase after it!
 
 ![Hide and seek with measuring cups](/img/img_9264.jpeg)
 
-And, of course, there’s “hide and seek.” Hide a ball under each cup and have baby find them.
+And, of course, there’s **“hide and seek.”** Hide a ball under each cup and have baby find them.
 
 #### **Suggested Items**:
 
