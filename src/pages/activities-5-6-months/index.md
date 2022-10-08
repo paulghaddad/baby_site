@@ -263,21 +263,39 @@ To warm Hayden up to the idea of traveling, I purchased a few travel-related boo
 * [B Is for Bison: A National Parks Primer](https://www.amazon.com/gp/product/1423658299/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [All Aboard Pacific Northwest: A Recreation Primer](https://www.amazon.com/gp/product/1423646010/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-## 3 art projects to try
+## Water art
 
 ![Water art](/img/img_9276.jpeg)
 
-Doing art projects with Hayden was one of the things I looked forward to most during this age. Once he could sit up in his high chair that vision became a reality. 
+Water art is simple but a lot of fun!
 
-Art projects at this 5 to 6 month age are pretty basic, but are still a lot of fun. Here are three ideas to try. 
-
-**1. Water art**
-
-Fill a small paper or plastic bowl with water. Have construction paper nearby. 
+Fill a small paper or plastic bowl with water. 
 
 Put baby in his high chair, or sit with baby on the floor. Help him dip his fingers into the water. 
 
-Then, let him touch or grab the paper. It’s fun to make hand prints, too. You can also use [large art brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) to make water marks.
+Then, let him touch or grab the paper. 
+
+It’s fun to make hand prints, too. You can also use [large art brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) to make water marks.
+
+#### Suggested Items:
+
+[Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Jumbo Children's Tempera Artist Paint Brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
+
+
+
+
+
+
+
+
+
+
+
+
 
 **2. Finger paint**
 
