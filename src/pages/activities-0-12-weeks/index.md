@@ -5,7 +5,7 @@ title: "Play to Learn "
 ---
 ## Activities 0-12 Weeks
 
-## Make tummy time fun!
+## 1. Make tummy time fun!
 
 ![tummy time](/img/3e2a9333-c40b-495b-a709-23719b48bf3c.jpeg)
 
@@ -42,7 +42,7 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-## Engage baby with black and white high contrast cards
+## 2. Engage baby with black and white high contrast cards
 
 ![black and white cards hanging from play gym](/img/image_2.jpg)
 
@@ -70,7 +70,7 @@ To keep your baby on their side, you may find it useful to roll up a small towel
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-## The many uses of mobiles
+## 3. The many uses of mobiles
 
 ![baby looking at mobile](/img/image_3.jpg)
 
@@ -94,7 +94,7 @@ Then, as he began to become more mobile on his tummy, I used the mobiles to enco
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
-## Rattle, rattle, rattle
+## 4. Rattle, rattle, rattle
 
 ![baby holding rattle](/img/image_5.jpg)
 
@@ -112,7 +112,7 @@ Once baby has grasped the rattle, then you grab the other end and shake the ratt
 
 Another way to use a rattle is to shake it and **see if your baby turns their head in response to the noise**.
 
-## Let’s talk
+## 5. Let’s talk
 
 ![](/img/screen-shot-2022-10-06-at-10.24.51-am.png)
 
@@ -126,7 +126,7 @@ You can also talk as you do things with your baby, like dressing him. For exampl
 
 Make eye contact with your baby and have a conversation. Ask him a question, then pause and wait for an answer. Give him time to coo, grunt, or make other noises in return. 
 
-## Make time for book time 
+## 6. Make time for book time 
 
 ![Reading books](/img/740a5bee-fcae-4675-865c-9d10fe76ac63.jpeg)
 
@@ -150,7 +150,7 @@ But I soon found it more comfortable to lay on our backs, side-by-side on his pl
 
 [National Geographic Kids Little Kids First Board Book: Ocean](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426334680/ref=sr_1_1?crid=ZGYZVVCKH4KU&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Ocean&qid=1663250323&s=audible&sprefix=national+geographic+kids+little+kids+first+board+book+ocean%2Caudible%2C241&sr=1-1)
 
-## Let the music play
+## 7. Let the music play
 
 Turn on some beautiful music and listen for a few minutes. 
 
@@ -164,7 +164,7 @@ Just sing and maybe even sway back and forth to the tune. Or simply singing “l
 
 [Apple HomePod Mini](https://www.apple.com/homepod-mini/)
 
-## Study faces
+## 8. Study faces
 
 Make time for your baby to study -- faces that is. 
 
@@ -190,7 +190,7 @@ Mirror
 
 [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
 
-## The great outdoors
+## 9. The great outdoors
 
 ![Tree](/img/niko-photos-tgtvxeor_rs-unsplash.jpg)
 
@@ -204,7 +204,7 @@ I’d hold my baby and walk around our backyard, narrating what I’d see and he
 
 You can also **introduce elements of nature:** pull off a leaf from a tree or pick a flower, show it to him, and have him touch it.
 
-## Customize your play gym
+## 10. Customize your play gym
 
 ![Play gym with black and white cards ](/img/image_2.jpg)
 
@@ -236,7 +236,7 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 
 [Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-## Artist Baby
+## 11. Artist baby
 
 ![](/img/pexels-steve-johnson-1269968.jpg)
 
