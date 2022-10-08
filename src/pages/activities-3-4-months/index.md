@@ -201,9 +201,9 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 
 Want to get baby some practice using their hands? Give these ideas a try.
 
-Put a cloth, like a washcloth, on baby’s foot, and he’ll work hard to pull it off. Once he’s mastered this, you do the same game with a small oven mitt: stick the mitt on his foot and baby will pull it off. 
+**Put a cloth, like a washcloth, on baby’s foot**, and he’ll work hard to pull it off. Once he’s mastered this, you **do the same game with a small oven mitt**: stick the mitt on his foot and baby will pull it off. 
 
-You can play similar games using baby’s hands. Put a cloth on baby’s hand, and he’ll pull it off. Then, try a sock or a small oven mitt.
+You can **play similar games using baby’s hands**. Put a cloth on baby’s hand, and he’ll pull it off. Then, try a sock or a small oven mitt.
 
 #### **Suggested Items**:
 
@@ -237,7 +237,7 @@ We’ve been doing this for months and love it! It’s especially fun now that h
 
 [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-## 11. It’s story time
+## 11. **Fun with books**
 
 This 3 to 4 month age is also when sensory books became a big hit with Hayden. 
 
