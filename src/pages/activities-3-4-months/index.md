@@ -71,11 +71,11 @@ The objects were low enough for him to kick, which he loved to do! I liked the [
 
 Mobiles can have new uses during these months. 
 
-Sure, you can hang a mobile overhead for baby. But that’s just the start. 
+Sure, you can **hang a mobile overhead** for baby. But that’s just the start. 
 
-Get baby kicking by laying baby on their back on their playmat. Then, dangle a mobile just above their feet.  
+**Get baby kicking** by laying baby on their back on their playmat. Then, dangle a mobile just above their feet.  
 
-You can also use a mobile during tummy time. 
+You can also **use a mobile during tummy time**. 
 
 Get baby on his tummy, then dangle the mobile in front of him or to the side. Hayden loved this! It gave him a new perspective, as well as the motivation he needed to lift that heavy head.
 
@@ -183,7 +183,7 @@ I’d point out parts of our faces: “mommy’s nose”; “Hayden’s nose.”
 
 **A mirror is also great to use during tummy time**. Prop a mirror up so baby can study his face while on his belly. He’ll love it!
 
-## Bubble time!
+## 8. Bubble time!
 
 ![Bubbles](/img/drew-beamer-hk6e4uxjmgo-unsplash.jpg)
 
@@ -195,7 +195,7 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 
 [Bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
 
-## 8. Get those hands moving
+## 9. Get those hands moving
 
 ![Hands](/img/screen-shot-2022-10-06-at-9.23.16-pm.png)
 
@@ -211,7 +211,7 @@ Washcloth
 
 Small oven mit
 
-## 9. Aren’t baby animals cute?!
+## 10. Aren’t baby animals cute?!
 
 ![Baby animal](/img/adam-mosley-4sepxkg8xzw-unsplash.jpg)
 
@@ -237,7 +237,7 @@ We’ve been doing this for months and love it! It’s especially fun now that h
 
 [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-## 10. It’s story time
+## 11. It’s story time
 
 This 3 to 4 month age is also when sensory books became a big hit with Hayden. 
 
@@ -271,7 +271,7 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 **[Polar Bear, Polar Bear, What Do You Hear?](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=196MX6JCJMW2T&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F&qid=1663250260&s=audible&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+%2Caudible%2C73&sr=1-1-catcorr)**
 
-## 11. It’s laundry time
+## 12. It’s laundry time
 
 ![Laundry](/img/annie-spratt-5tfci4nj6b4-unsplash.jpg)
 
@@ -287,7 +287,7 @@ I’d continue the same process with shirts, pants, socks, and anything else tha
 
 To break it up, I’d often **incorporate a game of peek-a-boo**. I’d put a small towel over his face or mine, and he’d pull it off. This would result in giggles, lots of giggles.
 
-## 12. Sing and Dance
+## 13. Sing and Dance
 
 ![Record player](/img/adrian-korte-5gn2soeac40-unsplash.jpg)
 
@@ -308,7 +308,7 @@ These are some of the songs Hayden loved at this age:
 
 [Apple HomePod Mini](https://www.apple.com/homepod-mini/)
 
-## 13. E﻿xplore Nature
+## 14. E﻿xplore Nature
 
 ![Tree](/img/niko-photos-tgtvxeor_rs-unsplash.jpg)
 
