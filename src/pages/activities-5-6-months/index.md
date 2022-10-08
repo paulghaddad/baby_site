@@ -67,7 +67,7 @@ This game may be hard for baby at first. But soon enough he’ll love it! Plus i
 
 ## **4.** Reading is fun!
 
-![Lots of books](/img/alfons-morales-ylswjsy7stw-unsplash.jpg)
+![Reading](/img/img_9524.jpeg)
 
 This is such a fun age to read with baby!
 
