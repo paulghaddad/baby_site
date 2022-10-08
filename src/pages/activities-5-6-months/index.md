@@ -287,29 +287,39 @@ It’s fun to make hand prints, too. You can also use [large art brushes](https:
 
 
 
-
-
-
-
-
-
-
-
-
-
-**2. Finger paint**
+## F﻿inger paint (with taste safe paint)
 
 ![Finger painting](/img/img_9233.jpeg)
 
-I like [this simple recipe](https://www.google.com/search?q=homemade+finger+paint+for+babies&oq=homemade+finger+&aqs=chrome.1.0i512j0i20i263i512j0i512j69i57j0i512l2j69i60l2.4204j0j4&sourceid=chrome&ie=UTF-8) to make homemade finger paint, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
+I like [this simple recipe](https://www.google.com/search?q=homemade+finger+paint+for+babies&oq=homemade+finger+&aqs=chrome.1.0i512j0i20i263i512j0i512j69i57j0i512l2j69i60l2.4204j0j4&sourceid=chrome&ie=UTF-8) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
 
-Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
+Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
+
+B﻿aby can dip his fingers or hands into the paint. Or you can introduce a [paint brush](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1). 
 
 As fun as it is for baby to decorate the paper with paint, it’s equally enjoyable for him to squish the paint in his hands. It’s definitely a sensorial experience!
 
+**You can also put some paint into a Ziplock bag and have baby squish the paint that’s in the bag**. It’s another sensorial experience!
+
 To keep things relatively clean, put baby in a [mess-proof bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1).
 
-**3. Abstract art**
+#### **Suggested Items**:
+
+[Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[365 by Whole Foods Market, Food Coloring (plant-based)](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5)
+
+[Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+
+[Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
+
+[Jumbo Children's Tempera Artist Paint Brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
+
+
+
+## **Abstract art**
 
 ![](/img/img_9285.jpeg)
 
@@ -328,7 +338,6 @@ Now baby can run their fingers over the drops of paint and squish the paint drop
 * [Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [Crayola Washable Kids Paint](https://www.amazon.com/gp/product/B00004UBH2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [365 by Whole Foods Market, Food Coloring (plant-based)](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5)
 * [Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
 
