@@ -242,13 +242,13 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 
 I began sharing my passion for art with Hayden very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
 
-Then, I tore off a few pages from a calendar. **We’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talked”about them.**
+Then, I tore off a few pages from a calendar. **We’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.**
 
-**I’d point out and describe what I saw; I’d also ask him questions**, always pausing for him to respond back with a coo, grunt, or even a smile.
+I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
 
 This was such a hit!
 
-So I did the same thing with baby animals and beautiful places. I purchased a [baby animal](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1) and [national park](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3) calendars. 
+**So I did the same thing with baby animals and beautiful places**. I purchased a [baby animal](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1) and [national park](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3) calendars. 
 
 This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
 
