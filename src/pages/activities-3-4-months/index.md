@@ -5,7 +5,7 @@ title: "Play to Learn "
 ---
 ## Activities 3-4 Months
 
-## Breakfast with mommy (or daddy)
+## 1. Breakfast with mommy (or daddy)
 
 ![breakfast with mommy](/img/screen-shot-2022-10-06-at-7.00.34-pm.png)
 
@@ -37,12 +37,11 @@ Above all, “breakfast with mommy” is a way to teach patience. 
 
 At first, Haden would only last a few minutes in his bouncer. He was anxious to get up and play. But over time his patience grew, and so did his intrigue with the entire breakfast process, both preparation and cleanup.
 
-#### **\
-Suggested Item**:
+#### Suggested Item:
 
 [Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
 
-## Grab or kick it 
+## 2. Grab or kick it 
 
 ![play gym](/img/img_8749.jpeg)
 
@@ -66,7 +65,7 @@ The objects were low enough for him to kick, which he loved to do! I liked the [
 
 [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
 
-## The many uses of mobiles
+## 3. The many uses of mobiles
 
 ![baby with mobile](/img/img_8755.jpeg)
 
@@ -80,12 +79,11 @@ You can also use a mobile during tummy time. 
 
 Get baby on his tummy, then dangle the mobile in front of him or to the side. Hayden loved this! It gave him a new perspective, as well as the motivation he needed to lift that heavy head.
 
-#### **\
-Suggested Item**:
+#### Suggested Item:
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
-## **More tummy time fun!**
+## 4. **More tummy time fun!**
 
 ![Tummy time](/img/img_8850.jpeg)
 
@@ -119,7 +117,7 @@ And you can **always put an enticing toy in front of baby** while he’s on his 
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
-## Sit up and explore
+## 5. Sit up and explore
 
 ![Baby sitting up looking at toys](/img/screen-shot-2022-10-06-at-8.56.36-pm.png)
 
@@ -141,7 +139,7 @@ Other times, I’d place an object to the side or in front of him and he’d pra
 
 [Farm (My First)  by Tiger Tales](https://www.amazon.com/Farm-My-First-Touch-Feel/dp/1589256344/ref=sr_1_6?crid=CYKM5UUYPYM5&keywords=Farm+by+Tiger+Tales&qid=1664892429&sprefix=farm+by+tiger+tales%2Caps%2C99&sr=8-6)
 
-## Chef baby
+## 6. Chef baby
 
 ![Produce](/img/img_9252.jpeg)
 
@@ -171,7 +169,7 @@ Colander
 
 Measuring cups
 
-## Make time for mirror time
+## 7. Make time for mirror time
 
 ![ Baby looking into mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
@@ -197,7 +195,7 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 
 [Bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
 
-## Get those hands moving
+## 8. Get those hands moving
 
 ![Hands](/img/screen-shot-2022-10-06-at-9.23.16-pm.png)
 
@@ -213,7 +211,7 @@ Washcloth
 
 Small oven mit
 
-## Aren’t baby animals cute?!
+## 9. Aren’t baby animals cute?!
 
 ![Baby animal](/img/adam-mosley-4sepxkg8xzw-unsplash.jpg)
 
@@ -239,7 +237,7 @@ We’ve been doing this for months and love it! It’s especially fun now that h
 
 [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-## It’s story time
+## 10. It’s story time
 
 This 3 to 4 month age is also when sensory books became a big hit with Hayden. 
 
@@ -273,7 +271,7 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 **[Polar Bear, Polar Bear, What Do You Hear?](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=196MX6JCJMW2T&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F&qid=1663250260&s=audible&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+%2Caudible%2C73&sr=1-1-catcorr)**
 
-## It’s laundry time
+## 11. It’s laundry time
 
 ![Laundry](/img/annie-spratt-5tfci4nj6b4-unsplash.jpg)
 
@@ -289,7 +287,7 @@ I’d continue the same process with shirts, pants, socks, and anything else tha
 
 To break it up, I’d often **incorporate a game of peek-a-boo**. I’d put a small towel over his face or mine, and he’d pull it off. This would result in giggles, lots of giggles.
 
-## Sing and Dance
+## 12. Sing and Dance
 
 ![Record player](/img/adrian-korte-5gn2soeac40-unsplash.jpg)
 
@@ -310,7 +308,7 @@ These are some of the songs Hayden loved at this age:
 
 [Apple HomePod Mini](https://www.apple.com/homepod-mini/)
 
-## E﻿xplore Nature
+## 13. E﻿xplore Nature
 
 ![Tree](/img/niko-photos-tgtvxeor_rs-unsplash.jpg)
 
