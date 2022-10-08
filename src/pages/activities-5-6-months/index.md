@@ -5,7 +5,7 @@ title: "Play to Learn "
 ---
 ## Activities 5-6 Months
 
-### **Parts of the body**
+## **Parts of the body**
 
 ![Learning parts of the body with baby](/img/screen-shot-2022-10-07-at-9.49.09-am.png)
 
@@ -15,9 +15,9 @@ Let baby learn about the different parts of his body. 
 
 **You can also do this activity with a mirror**, so baby can see his nose when you touch it and say the word.
 
-Conclude this “parts of the body” activity with the song “Head, Shoulders, Knees, and Toes.” This always results in many smiles and giggles!
+Conclude this “parts of the body” activity with the song **“Head, Shoulders, Knees, and Toes.”** This always results in many smiles and giggles!
 
-### Ball pick up
+## Ball pick up
 
 It’s so simple, but so beneficial and fun for baby!
 
@@ -35,11 +35,11 @@ That’s okay! 
 
 In fact, it’s great because now baby has to figure out how to get out of the sitting position to get the ball. You may need to help him to make this transition initially. But it’ll get easier, and more intuitive for baby, over time.
 
-**Suggested Item**:
+#### **Suggested Item**:
 
 [Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
-### Catch
+## Catch
 
 ![Rolling ball on table](/img/fbf46f70-3c1f-44ab-8025-a46cc8435a9a.jpeg)
 
@@ -61,11 +61,11 @@ You can also roll it from the side. Or roll it directly toward one hand in attem
 
 This game may be hard for baby at first. But soon enough he’ll love it! Plus it’s great for developing hand-eye coordination. 
 
-**Suggested Item**:
+#### **Suggested Item**:
 
 [Wooden ball](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
-### Reading is fun!
+## Reading is fun!
 
 ![Lots of books](/img/alfons-morales-ylswjsy7stw-unsplash.jpg)
 
@@ -77,7 +77,7 @@ He also loved lift-the-flap books, like *Dear Zoo*. 
 
 And, of course, sensorial books continued to be a hit. 
 
-**Suggested books**:
+#### **Suggested books**:
 
 [Where’s Spot?](https://www.amazon.com/Wheres-Spot-Eric-Hill/dp/0399240462/ref=asc_df_0399240462/?tag=hyprod-20&linkCode=df0&hvadid=312041961788&hvpos=&hvnetw=g&hvrand=87701769945528723&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1015223&hvtargid=pla-436146284818&psc=1#customerReviews)
 
@@ -89,7 +89,7 @@ And, of course, sensorial books continued to be a hit. 
 
 [See, Touch, Feel: ABC](https://www.amazon.com/gp/product/0312529708/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-### Hide and seek
+## Hide and seek
 
 ![Hide and seek with measuring cups](/img/img_9264.jpeg)
 
@@ -99,7 +99,7 @@ Take a few washcloths (ideally they’re cloths of different colors) and **hide 
 
 You can also **use measuring cups to hide the wooden balls**. Hayden loved this!  
 
-**Suggested Items**:
+#### **Suggested Items**:
 
 [Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
@@ -107,7 +107,7 @@ Washcloths
 
 Measuring cups
 
-### Fun with measuring cups
+## Fun with measuring cups
 
 ![Measuring cups](/img/screen-shot-2022-10-07-at-10.13.59-am.png)
 
@@ -131,13 +131,13 @@ He’d also use the handle to dump the ball, causing it to roll. Then, he’d wa
 
 And, of course, there’s “hide and seek.” Hide a ball under each cup and have baby find them.
 
-**Suggested Items**:
+#### **Suggested Items**:
 
 Measuring cups
 
 [Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
-### Get baby moving with mobiles
+## Get baby moving with mobiles
 
 ![Baby moving with mobile](/img/img_9307.jpeg)
 
@@ -149,11 +149,11 @@ Once baby is on his tummy, dangle a mobile in front of him. Then, slowly move (w
 
 Before you know it, baby has made a complete rotation on his tummy!
 
-**Suggested Item**:
+#### **Suggested Item**:
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
-### Splish splash water time fun!
+## Splish splash water time fun!
 
 ![Water activity](/img/img_7258.jpeg)
 
@@ -175,7 +175,7 @@ He’ll also like seeing how familiar objects move differently in water. 
 
 And he’ll delight in watching and moving toys across the cookie sheet.
 
-**Suggested Items**:
+#### **Suggested Items**:
 
 Cookie sheet
 
@@ -183,9 +183,7 @@ Small plastic bin
 
 Measuring cups
 
-
-
-### Sit, reach, crawl  
+## Sit, reach, crawl  
 
 Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
 
@@ -199,7 +197,7 @@ Baby will lean forward and try to reach for the toy. Help him transition out of 
 
 The best learning takes place when you want to learn something. If there’s a desired toy, baby will do what it takes to get it, while also learning a new skill along the way.
 
-### Mirror, mirror on the wall
+## Mirror, mirror on the wall
 
 ![Baby looking in mirror](/img/img_9271.jpeg)
 
@@ -213,11 +211,11 @@ After he spent some time studying his face, I’d move the mirror again. And he�
 
 He was all smiles, as he watched himself slithering up toward the mirror. 
 
-**Suggested item**:
+#### **Suggested item**:
 
 Mirror
 
-### Knock down the tower
+## Knock down the tower
 
 ![Knocking down blocks](/img/img_9298.jpeg)
 
@@ -235,11 +233,11 @@ You can also make a few towers around the room and have baby go from tower to to
 
 Needless to say, we both got our exercise! 
 
-**Suggested item**:
+#### **Suggested item**:
 
-[Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r)
+**[Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r)** by HABA
 
-### It’s time for a trip!
+## It’s time for a trip!
 
 ![Travel items](/img/annie-spratt-qyaka7w5umy-unsplash.jpg)
 
@@ -257,7 +255,7 @@ First, it exposed our son to a new environment and landscape. A house in the mid
 
 Have a checklist that contains all of the things you need to bring for baby. It'll give you all the peace of mind you need when you’re frantically trying to make it out the door. 
 
-**Suggested Item**s:
+#### **Suggested Item**s:
 
 To warm Hayden up to the idea of traveling, I purchased a few travel-related books for him in advance of the trip and read them to him. Here are a few of my favorites:
 
@@ -265,7 +263,7 @@ To warm Hayden up to the idea of traveling, I purchased a few travel-related boo
 * [B Is for Bison: A National Parks Primer](https://www.amazon.com/gp/product/1423658299/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [All Aboard Pacific Northwest: A Recreation Primer](https://www.amazon.com/gp/product/1423646010/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-### 3 art projects to try
+## 3 art projects to try
 
 ![Water art](/img/img_9276.jpeg)
 
@@ -316,7 +314,7 @@ Now baby can run their fingers over the drops of paint and squish the paint drop
 * [Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
 
-### Sensory boxes: touch, feel, pull
+## Sensory boxes: touch, feel, pull
 
 ![Bathroom sensory box](/img/img_9263.jpeg)
 
@@ -336,7 +334,7 @@ Then have baby sit up and pull out each object from the box. 
 
 Babies love to empty a box full of things. They’ll have as much fun pulling everything out as they will touching and exploring each object.
 
-### Spice it up!
+## Spice it up!
 
 ![Spices and herbs](/img/img_9266.jpeg)
 
@@ -354,7 +352,7 @@ I did the same thing with herbs. I talked about the spice or herb, what it smell
 
 Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
 
-### Get to know your fruits and veggies!
+## Get to know your fruits and veggies!
 
 ![Produce](/img/img_9252.jpeg)
 
@@ -366,13 +364,13 @@ Then, head to the table and explore these items with baby. Pull out an apple, an
 
 Take this sensory activity a step further by slicing and orange, lemon, or lime and have baby smell and touch it. 
 
-**Suggested Items**:
+#### **Suggested Items**:
 
 [Colander](https://www.amazon.com/Colander-Pro-Stainless-Steel-5-Quart/dp/B0182PE91A/ref=sr_1_1_sspa?keywords=colander&qid=1664894074&qu=eyJxc2MiOiI2LjkyIiwicXNhIjoiNi40NSIsInFzcCI6IjYuMDkifQ%3D%3D&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVEFLQVVSWEtKQjBNJmVuY3J5cHRlZElkPUEwMjM2NjI3MkU1Sjg1MzExQVlaNCZlbmNyeXB0ZWRBZElkPUEwODEyNjc3M0Y4R01QSVJLQzRHViZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
 
 A﻿ variety of fruits and veggies
 
-### A budding chef
+## A budding chef
 
 **Now is a great time to involve baby in the kitchen**. 
 
@@ -384,9 +382,11 @@ He watched enthusiastically as I sliced the bananas and placed them in the food 
 
 This simple activity was a multi-sensorial experience.
 
-**You can even involve baby in some basic recipes**. Hayden has “helped” me make pumpkin bread and spice cake. Although he’s not eating these things yet, I still involve him in the process -- and he loves it! 
+**You can even involve baby in some basic recipes**. Hayden has “helped” me make pumpkin bread and spice cake. 
 
 After I fill a measuring cup with flour, he’ll grab the cup handle and together we’ll dump it into the mixing bowl. Later, we’ll both hold the spatula and mix the ingredients together. 
+
+Although he’s not eating these things yet, I still involve him in the process -- and he loves it! 
 
 ## Songs babies will love!
 
