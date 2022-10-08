@@ -37,9 +37,8 @@ intro:
         *Parts of the body 
         *Splish splash water time fun!
         *Catch
-        *Wooden ball pick up
         *Mirror, mirror on the wall
-        *Get creative with art projects
+        *Abstract art
         *Spice it up!
         *Knock down the tower
         *Get to know your fruits and veggies!
