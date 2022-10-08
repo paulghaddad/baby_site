@@ -18,30 +18,31 @@ intro:
         *The many uses of mobiles
         *Study faces
         *The great outdoors
-        *Baby Monet
+        *Artist baby
         *Customize your play gym . . . and many more!
     - image: /img/screen-shot-2022-09-16-at-9.38.54-am.png
       url: /activities-3-4-months
       text: |
         13 activities to try, including:
-        *Breakfast with mommy (or daddy!) 
+        *Breakfast with mommy (or daddy) 
         *Chef baby
         *Bubble time!
         *Get those hands moving!
-        *It's story time
+        *Make time for mirror time
         *Aren't baby animals cute?! . . . and many more!
     - image: /img/img_9276.jpeg
       url: /activities-5-6-months
       text: |-
         20 activities to try, including:
         *Parts of the body 
-        *Hide and seek
+        *Splish splash water time fun!
         *Catch
         *Wooden ball pick up
         *Mirror, mirror on the wall
         *Get creative with art projects
         *Spice it up!
-        *Sensory boxes
+        *Knock down the tower
+        *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
     - image: /img/img_9320.jpeg
       text: More activities for older babies coming soon!
