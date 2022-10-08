@@ -23,4 +23,4 @@ Learning through play is a lot of fun when you have the resources you need to do
 
 
 
-E﻿mail me at: [amy@amymhaddad.com]("mailto:amy@amymhaddad.com")
+E﻿mail me at: [amy@amymhaddad.com](<mailto:amy@amymhaddad.com>)
