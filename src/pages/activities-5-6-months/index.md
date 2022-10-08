@@ -21,7 +21,7 @@ Conclude this “parts of the body” activity with the song **“Head, Shoulder
 
 It’s so simple, but so beneficial and fun for baby!
 
-Sit on the floor with baby sitting in front of you. Then, give baby a small ball to hold. I used a wooden ball.
+Sit on the floor with baby sitting in front of you. Then, give baby a small ball to hold. A ball without ridges, like a wooden or rubber ball, will give baby a good challenge.
 
 Inevitably, baby will drop the ball. At this point, encourage him to pick it back up. Or he may do this on his own.
 
@@ -45,15 +45,15 @@ In fact, it’s great because now baby has to figure out how to get out of the s
 
 It’s not too early to start playing catch -- well a modified version, at least, for baby. I got this idea from Dr. Peter Vishton’s online course, Scientific Secrets for Raising Kids Who Thrive, and it’s a good one.
 
-Here’s how it works. Sit at a table, like your kitchen or dining room table, with baby on your lap. 
+Here’s how it works. **Sit at a table**, like your kitchen or dining room table, with baby on your lap. 
 
 ![Rolling ball on table with baby extending arms](/img/screen-shot-2022-10-07-at-10.01.50-am.png)
 
-Use a wood or rubber ball and roll the ball to baby. 
+**Use a wood or rubber ball and roll the ball to baby**. 
 
 ![Baby catches ball ](/img/screen-shot-2022-10-07-at-10.03.32-am.png)
 
-The aim is for baby to extend one or both hands to “catch” the rolling ball. 
+**The aim is for baby to extend one or both hands to “catch” the rolling ball**. 
 
 You can roll the ball straight in front of baby. I found this to be the easiest for Hayden. That way he could extend both arms and catch the rolling ball. 
 
@@ -71,11 +71,11 @@ This game may be hard for baby at first. But soon enough he’ll love it! Plus i
 
 This is such a fun age to read with baby!
 
-Hayden loved to turn the pages of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm, grab the page with his hand, and push it over. I had to prompt him initially, but now he does it on his own. He loves being involved in the process!
+Hayden loved to **turn the pages** of the board books we read together. I’d say “can you please help me turn the page?” He’d extend his arm, grab the page with his hand, and push it over. I had to prompt him initially, but now he does it on his own. He loves being involved in the process!
 
-He also loved lift-the-flap books, like *Dear Zoo*. 
+He also loved **lift-the-flap books**, like *Dear Zoo*. 
 
-And, of course, sensorial books continued to be a hit. 
+And, of course, **sensorial books** continued to be a hit. 
 
 #### **Suggested books**:
 
@@ -191,9 +191,11 @@ He just sat there, looking at it. I could see him thinking: “what do I do now?
 
 Thus began a game that we liked to play, which helped him learn how to get out of the sitting position, so he could retrieve the toy.
 
-Begin with baby in a sitting position and station a desired toy out of reach. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
+**Begin with baby in a sitting position and station a desired toy out of reach**. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
 
-Baby will lean forward and try to reach for the toy. Help him transition out of the sitting position and into the crawling one. Then, once baby is safely on the floor, let him go at it and get his reward -- the toy.
+**Baby will lean forward and try to reach for the toy**. 
+
+**Help him transition** out of the sitting position and into the crawling one. Then, once baby is safely on the floor, let him go at it and get his reward -- the toy.
 
 The best learning takes place when you want to learn something. If there’s a desired toy, baby will do what it takes to get it, while also learning a new skill along the way.
 
