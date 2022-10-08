@@ -5,7 +5,7 @@ title: "Play to Learn "
 ---
 ## Activities 0-12 Weeks
 
-### Make tummy time fun!
+## Make tummy time fun!
 
 ![tummy time](/img/3e2a9333-c40b-495b-a709-23719b48bf3c.jpeg)
 
@@ -30,7 +30,7 @@ You can also have baby lay on your chest as you lay flat on the floor or on a co
 
 Or sit at an incline and rest baby on your chest. I found this way to be very effective early on; it was much easier for my baby to lift that heavy head. 
 
-**Suggested Items:**
+#### **Suggested Items:**
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) 
 
@@ -42,7 +42,7 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-### Engage baby with black and white high contrast cards
+## Engage baby with black and white high contrast cards
 
 ![black and white cards hanging from play gym](/img/image_2.jpg)
 
@@ -66,11 +66,11 @@ Show a card to your baby and let him engage with it. Then, slowly move the card 
 
 To keep your baby on their side, you may find it useful to roll up a small towel and put it behind their backside for support. This is a great way for baby to get practice laying on his side.
 
-**Suggested Item:**
+#### **Suggested Item:**
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-### The many uses of mobiles
+## The many uses of mobiles
 
 ![baby looking at mobile](/img/image_3.jpg)
 
@@ -80,7 +80,7 @@ Babies love mobiles! And so should you -- because you can use them in many diffe
 
 ![mobiles](/img/2fe15ecd-f4a1-4349-b320-c19aac68baf4.jpeg)
 
-**I used mobiles above Hayden’s play quilt**,where he’d stretch his arms and legs watching and reacting to the shapes floating above him.
+**I used mobiles above Hayden’s play quilt**, where he’d stretch his arms and legs watching and reacting to the shapes floating above him.
 
 These mobiles were a gift that kept on giving because I used them in different ways as my baby got older and more advanced.
 
@@ -88,13 +88,13 @@ In addition to using these mobiles overhead, **I also used them during tummy tim
 
 Then, as he began to become more mobile on his tummy, I used the mobiles to encourage Hayden to rotate. I’d hold a mobile in front of him, then slowly move around his playmat and he’d follow me. 
 
-**Suggested Items:**
+#### **Suggested Items:**
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
-### Rattle, rattle, rattle
+## Rattle, rattle, rattle
 
 ![baby holding rattle](/img/image_5.jpg)
 
@@ -112,7 +112,7 @@ Once baby has grasped the rattle, then you grab the other end and shake the ratt
 
 Another way to use a rattle is to shake it and **see if your baby turns their head in response to the noise**.
 
-### Let’s talk
+## Let’s talk
 
 ![](/img/screen-shot-2022-10-06-at-10.24.51-am.png)
 
@@ -126,7 +126,7 @@ You can also talk as you do things with your baby, like dressing him. For exampl
 
 Make eye contact with your baby and have a conversation. Ask him a question, then pause and wait for an answer. Give him time to coo, grunt, or make other noises in return. 
 
-### Make time for book time 
+## Make time for book time 
 
 ![Reading books](/img/740a5bee-fcae-4675-865c-9d10fe76ac63.jpeg)
 
@@ -136,7 +136,7 @@ Early on, I read while holding him.
 
 But I soon found it more comfortable to lay on our backs, side-by-side on his playmat, where I’d hold the book above his head. I found this position to be easier and more comfortable. There was less to juggle!
 
-**Suggested books:**
+#### **Suggested books:**
 
 [Panda Bear, Panda Bear, What Do You See?](https://www.amazon.com/Panda-Bear-What-You-See/dp/B005DCA17C/ref=sr_1_1?crid=1TYHK9YOKINT0&keywords=Panda+Bear%2C+Panda+Bear%2C+What+Do+You+See%3F&qid=1663250233&s=books&sprefix=panda+bear%2C+panda+bear%2C+what+do+you+see+%2Cstripbooks%2C155&sr=1-1)
 
@@ -150,7 +150,7 @@ But I soon found it more comfortable to lay on our backs, side-by-side on his pl
 
 [National Geographic Kids Little Kids First Board Book: Ocean](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426334680/ref=sr_1_1?crid=ZGYZVVCKH4KU&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Ocean&qid=1663250323&s=audible&sprefix=national+geographic+kids+little+kids+first+board+book+ocean%2Caudible%2C241&sr=1-1)
 
-### Let the music play
+## Let the music play
 
 Turn on some beautiful music and listen for a few minutes. 
 
@@ -160,11 +160,11 @@ You can also sing to your baby -- and you should! Don’t worry about having a b
 
 Just sing and maybe even sway back and forth to the tune. Or simply singing “lalalala” repeatedly is fun for your baby. 
 
-**Suggested item:**
+#### **Suggested item:**
 
 [Apple HomePod Mini](https://www.apple.com/homepod-mini/)
 
-### Study faces
+## Study faces
 
 Make time for your baby to study -- faces that is. 
 
@@ -182,7 +182,7 @@ Baby can also study faces by looking at pictures of babies. Books about babies, 
 
 These books also work great during tummy time. Prop open a book and lay it against a wall, so baby has something interesting to look at while on his tummy.
 
-**Suggested Items:**
+#### **Suggested Items:**
 
 Mirror
 
@@ -190,19 +190,23 @@ Mirror
 
 [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
 
-### The great outdoors
+## The great outdoors
 
-Step out to your backyard or go to a park and explore the great outdoors!
+![Tree](/img/niko-photos-tgtvxeor_rs-unsplash.jpg)
+
+**Step out to your backyard or go to a park and explore the great outdoors**!
 
 This may seem mundane to you, but being outside is all new territory for baby! 
 
 I’d hold my baby and walk around our backyard, narrating what I’d see and hear, as my baby took in this different environment. 
 
-Point out the sights and sounds you’re experiencing. For example, “I hear the birds chirping.” Or “do you feel the breeze?!” 
+**Point out the sights and sounds you’re experiencing**. For example, “I hear the birds chirping.” Or “do you feel the breeze?!” 
 
-You can also introduce elements of nature: pull off a leaf from a tree or pick a flower, show it to him, and have him touch it.
+You can also **introduce elements of nature:** pull off a leaf from a tree or pick a flower, show it to him, and have him touch it.
 
-### Customize your play gym
+## Customize your play gym
+
+
 
 Early on, Hayden wasn’t engaging with some of the items that came with his play gym.
 
@@ -216,7 +220,7 @@ So I customized it again. 
 
 I took objects -- rattles and teethers -- and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
 
-**Suggested Items**:
+#### **Suggested Items**:
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
