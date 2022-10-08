@@ -5,7 +5,7 @@ title: "Play to Learn "
 ---
 ## Activities 5-6 Months
 
-## **Parts of the body**
+## **1. Parts of the body**
 
 ![Learning parts of the body with baby](/img/screen-shot-2022-10-07-at-9.49.09-am.png)
 
@@ -17,7 +17,7 @@ Let baby learn about the different parts of his body. 
 
 Conclude this “parts of the body” activity with the song **“Head, Shoulders, Knees, and Toes.”** This always results in many smiles and giggles!
 
-## Ball pick up
+## **2.** Ball pick up
 
 It’s so simple, but so beneficial and fun for baby!
 
@@ -39,7 +39,7 @@ In fact, it’s great because now baby has to figure out how to get out of the s
 
 [Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
-## Catch
+## **3.** Catch
 
 ![Rolling ball on table](/img/fbf46f70-3c1f-44ab-8025-a46cc8435a9a.jpeg)
 
@@ -65,7 +65,7 @@ This game may be hard for baby at first. But soon enough he’ll love it! Plus i
 
 [Wooden ball](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
-## Reading is fun!
+## **4.** Reading is fun!
 
 ![Lots of books](/img/alfons-morales-ylswjsy7stw-unsplash.jpg)
 
@@ -89,7 +89,7 @@ And, of course, sensorial books continued to be a hit. 
 
 [See, Touch, Feel: ABC](https://www.amazon.com/gp/product/0312529708/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-## Hide and seek
+## **5.** Hide and seek
 
 ![Hide and seek with measuring cups](/img/img_9264.jpeg)
 
@@ -107,7 +107,7 @@ Washcloths
 
 Measuring cups
 
-## Fun with measuring cups
+## **6.** Fun with measuring cups
 
 ![Measuring cups](/img/screen-shot-2022-10-07-at-10.13.59-am.png)
 
@@ -137,7 +137,7 @@ Measuring cups
 
 [Wooden balls](https://woodpeckerscrafts.com/wooden-balls/) by Woodpeckers
 
-## Get baby moving with mobiles
+## **7.** Get baby moving with mobiles
 
 ![Baby moving with mobile](/img/img_9307.jpeg)
 
@@ -153,7 +153,7 @@ Before you know it, baby has made a complete rotation on his tummy!
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
-## Splish splash water time fun!
+## **8.** Splish splash water time fun!
 
 ![Water activity](/img/img_7258.jpeg)
 
@@ -183,7 +183,7 @@ Small plastic bin
 
 Measuring cups
 
-## Sit, reach, crawl  
+## **9.** Sit, reach, crawl  
 
 Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
 
@@ -197,7 +197,7 @@ Baby will lean forward and try to reach for the toy. Help him transition out of 
 
 The best learning takes place when you want to learn something. If there’s a desired toy, baby will do what it takes to get it, while also learning a new skill along the way.
 
-## Mirror, mirror on the wall
+## **10.** Mirror, mirror on the wall
 
 ![Baby looking in mirror](/img/img_9271.jpeg)
 
@@ -215,7 +215,7 @@ He was all smiles, as he watched himself slithering up toward the mirror. 
 
 Mirror
 
-## Knock down the tower
+## **11.** Knock down the tower
 
 ![Knocking down blocks](/img/img_9298.jpeg)
 
@@ -237,7 +237,7 @@ Needless to say, we both got our exercise! 
 
 **[Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r)** by HABA
 
-## It’s time for a trip!
+## **12.** It’s time for a trip!
 
 ![Travel items](/img/annie-spratt-qyaka7w5umy-unsplash.jpg)
 
@@ -263,7 +263,7 @@ To warm Hayden up to the idea of traveling, I purchased a few travel-related boo
 * [B Is for Bison: A National Parks Primer](https://www.amazon.com/gp/product/1423658299/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [All Aboard Pacific Northwest: A Recreation Primer](https://www.amazon.com/gp/product/1423646010/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 
-## Water art
+## **13.** Water art
 
 ![Water art](/img/img_9276.jpeg)
 
@@ -285,9 +285,7 @@ It’s fun to make hand prints, too. You can also use [large art brushes](https:
 
 [Jumbo Children's Tempera Artist Paint Brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
 
-
-
-## F﻿inger paint (with taste safe paint)
+## **14. F﻿inger painting (with taste safe paint)**
 
 ![Finger painting](/img/img_9233.jpeg)
 
@@ -317,9 +315,7 @@ To keep things relatively clean, put baby in a [mess-proof bib](https://www.amaz
 
 [Jumbo Children's Tempera Artist Paint Brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
 
-
-
-## **Abstract art**
+## **15. Abstract art**
 
 ![](/img/img_9285.jpeg)
 
@@ -341,7 +337,7 @@ Now baby can run their fingers over the drops of paint and squish the paint drop
 * [Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
 * [Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
 
-## Sensory boxes: touch, feel, pull
+## **16.** Sensory boxes: touch, feel, pull
 
 ![Bathroom sensory box](/img/img_9263.jpeg)
 
@@ -361,7 +357,7 @@ Then have baby sit up and pull out each object from the box. 
 
 Babies love to empty a box full of things. They’ll have as much fun pulling everything out as they will touching and exploring each object.
 
-## Spice it up!
+## **17.** Spice it up!
 
 ![Spices and herbs](/img/img_9266.jpeg)
 
@@ -379,7 +375,7 @@ I did the same thing with herbs. I talked about the spice or herb, what it smell
 
 Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
 
-## Get to know your fruits and veggies!
+## **18.** Get to know your fruits and veggies!
 
 ![Produce](/img/img_9252.jpeg)
 
@@ -397,7 +393,7 @@ Take this sensory activity a step further by slicing and orange, lemon, or lime 
 
 A﻿ variety of fruits and veggies
 
-## A budding chef
+## **19.** A budding chef
 
 **Now is a great time to involve baby in the kitchen**. 
 
@@ -415,7 +411,7 @@ After I fill a measuring cup with flour, he’ll grab the cup handle and togethe
 
 Although he’s not eating these things yet, I still involve him in the process -- and he loves it! 
 
-## Songs babies will love!
+## **20.** Songs babies will love!
 
 Babies love to hear you sing, even if you’re out of tune like me. 
 
