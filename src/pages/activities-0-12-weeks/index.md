@@ -206,13 +206,15 @@ You can also **introduce elements of nature:** pull off a leaf from a tree or pi
 
 ## Customize your play gym
 
-
+![Play gym with black and white cards ](/img/image_2.jpg)
 
 Early on, Hayden wasn’t engaging with some of the items that came with his play gym.
 
-So I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1). 
+So I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)S﻿o I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1).
 
 I punched a hole in each one and attached it to the play gym structure with a string. The cards dangled from the top of the play gym. There are images on both sides of the cards, which made them fun to look at -- especially when they moved.
+
+![Play gym with objects ](/img/img_8749.jpeg)
 
 This worked great until he was ready to grasp objects. 
 
