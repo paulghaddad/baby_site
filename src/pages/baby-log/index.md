@@ -3,7 +3,7 @@ templateKey: baby-log-page
 path: /baby-log
 title: Baby's Weekly and Daily Log Book
 ---
-![](/img/baby-log-6.png)
+![Baby log cover](/img/baby-log-6_2.png)
 
 
 
