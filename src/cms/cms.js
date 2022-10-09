@@ -9,6 +9,8 @@ import Activities56PagePreview from './preview-templates/Activities56PagePreview
 import BlogPostPreview from './preview-templates/BlogPostPreview'
 import BooksPagePreview from './preview-templates/BooksPagePreview'
 import ToysPagePreview from './preview-templates/ToysPagePreview'
+import BabyLogPagePreview from './preview-templates/BabyLogPagePreview'
+import NewsletterPagePreview from './preview-templates/NewsletterPagePreview'
 import IndexPagePreview from './preview-templates/IndexPagePreview'
 
 CMS.registerMediaLibrary(uploadcare)
@@ -21,4 +23,6 @@ CMS.registerPreviewTemplate('activities-3-4-months', Activities34PagePreview)
 CMS.registerPreviewTemplate('activities-5-6-months', Activities56PagePreview)
 CMS.registerPreviewTemplate('books', BooksPagePreview)
 CMS.registerPreviewTemplate('toys', ToysPagePreview)
+CMS.registerPreviewTemplate('baby-log', BabyLogPagePreview)
+CMS.registerPreviewTemplate('newsletter',NewsletterPagePreview)
 CMS.registerPreviewTemplate('blog', BlogPostPreview)
