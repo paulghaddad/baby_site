@@ -23,7 +23,7 @@ This activity is especially fun now that he’s older and much more talkative; h
 
 #### **Suggested Items**:
 
-[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+Art Page-A-Day Gallery Calendar 
 
 [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
@@ -222,8 +222,6 @@ To keep your baby on their side, you may find it useful to roll up a small towel
 #### **Suggested Item:**
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-
-
 
 ## 11. Make tummy time fun!
 
