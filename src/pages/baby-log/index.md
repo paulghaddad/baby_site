@@ -1,12 +1,19 @@
 ---
 templateKey: baby-log-page
 path: /baby-log
-title: "Baby's Weekly and Daily Log Book: Track your newborn's routine (feeds,
-  activities, sleep and diaper changes)"
+title: Baby's Weekly and Daily Log Book
 ---
-[P﻿urchase Baby's Weekly and Daily Log Book](https://www.amazon.com/Babys-Weekly-Daily-Log-Book/dp/B0BFWFL8FS/ref=sr_1_1?crid=3FYYT7XMAINGB&keywords=daily+and+weekly+baby+log&qid=1665326969&s=books&sprefix=daily+and+weekly+baby+log%2Cstripbooks%2C101&sr=1-1)
+![](/img/baby-log-6.png)
+
+
+
+
+
+
 
 ![Baby log filled in](/img/filled_in.jpg)
+
+[P﻿urchase Baby's Weekly and Daily Log Book](https://www.amazon.com/Babys-Weekly-Daily-Log-Book/dp/B0BFWFL8FS/ref=sr_1_1?crid=3FYYT7XMAINGB&keywords=daily+and+weekly+baby+log&qid=1665326969&s=books&sprefix=daily+and+weekly+baby+log%2Cstripbooks%2C101&sr=1-1)
 
 * The *only* **weekly and daily baby log** **that’s organized by feed** (up to 12 feeds per day).
 * Track your baby’s daily feeds, activities, sleep, diapers, and supplements or medications for 90 days.
@@ -33,5 +40,3 @@ I established a routine with my baby by keeping track of his activities and slee
 When I noticed a change in my son’s behavior, like when he hit the four-month sleep regression and later began teething, I’d review through the weekly and daily reflection pages to see if a change in his feeds, activities, or nap times affected him. It’s what I needed to get back on track.\
 \
 Baby’s Weekly & Daily Log Book is a special memento of how my baby has changed and the special times we have together. One day my baby boy will read -- in my handwriting -- my notes and observations, as well as the details of each day.
-
-![](/img/baby-log-6.png)
