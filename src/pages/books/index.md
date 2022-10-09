@@ -7,11 +7,11 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 ### Nursery Rhymes
 
-[Mother Goose: One Hundred Best-Loved Verses](https://www.amazon.com/Mary-Engelbreits-Mother-Goose-Best-Loved/dp/B000BHHRFI/ref=sr_1_1?keywords=mother+goose+by+mary+engelbreit&qid=1663353730&sr=8-1) by Mary Engelbreit
+Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit
 
 ### Classics and General Good Books
 
-[Ten Little Babies](https://www.amazon.com/Ten-Little-Babies-Gyo-Fujikawa/dp/140275700X/ref=sr_1_1?crid=2UR9T259W38D3&keywords=Ten+Little+Babies+by+Gyo+Fujikawa&qid=1663590450&sprefix=ten+little+babies+by+gyo+fujikawa%2Caps%2C87&sr=8-1) by Gyo Fujikawa
+Ten Little Babies by Gyo Fujikawa
 
 The Runaway Bunny by Margaret Wise Brown
 
@@ -64,8 +64,6 @@ In the Garden with Van Gogh by Julie Merberg
 
 Dancing with Degas by Julie Merberg
 
-
-
 ### Sensory and Flip-the-Flap Books
 
 See, Touch, Feel: A First Sensory Book by by Roger Priddy
@@ -77,8 +75,6 @@ Farm by Tiger Tales
 You’re My Little Baby by Eric Carle
 
 Where’s Spot? by Eric Hill
-
-
 
 ### Nature and Things in Our World
 
@@ -95,8 +91,6 @@ Hello, World! Weather by Jill McDonald
 Hello, World! Solar System by Jill McDonald
 
 Freight Train by Donald Crews
-
-
 
 ### Travel
 
