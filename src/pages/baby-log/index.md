@@ -4,19 +4,21 @@ path: /baby-log
 title: "Baby's Weekly and Daily Log Book: Track your newborn's routine (feeds,
   activities, sleep and diaper changes)"
 ---
-
+[P﻿urchase Baby's Weekly and Daily Log Book](https://www.amazon.com/Babys-Weekly-Daily-Log-Book/dp/B0BFWFL8FS/ref=sr_1_1?crid=3FYYT7XMAINGB&keywords=daily+and+weekly+baby+log&qid=1665326969&s=books&sprefix=daily+and+weekly+baby+log%2Cstripbooks%2C101&sr=1-1)
 
 ![Baby log filled in](/img/filled_in.jpg)
 
-* The only weekly and daily baby log that’s organized by feed (up to 12 feeds per day).
+* The *only* **weekly and daily baby log** **that’s organized by feed** (up to 12 feeds per day).
 * Track your baby’s daily feeds, activities, sleep, diapers, and supplements or medications for 90 days.
-* Tired of not getting any sleep? Establish a routine by spotting baby’s patterns in the daily and weekly reviews.
-* Stay organized by planning for the upcoming week.
-* Monitor your baby’s weight with the Weight Tracker page.
-* Treasure your special baby moments with this special keepsake.
+* Tired of not getting any sleep? **Establish a routine** by spotting baby’s patterns in the daily and weekly reviews.
+
+  ![Weekly plan](/img/weekly.jpg)
+* **Stay organized** by planning for the upcoming week.
+
+  ![Weight tracker page](/img/weight.jpg)
+* **Monitor your baby’s weight** with the Weight Tracker page.
+* **Treasure your special baby moments** with this special keepsake.
 * Designed, printed and published in the USA.
-
-
 
 I was a sleep-deprived, first-time parent looking to establish a routine and monitor my newborn’s day: feeds, activities, sleep, diapers, and supplements. As a nursing new mom with a low birth weight baby, I also needed to track my baby’s weight. And I wanted to document all of the special moments we had together each week.How do I stay organized with all of these details, while running on little sleep.\
 \
