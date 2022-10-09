@@ -2,12 +2,7 @@
 templateKey: index-page
 title: Learn by playing
 image: /img/img_9297.jpeg
-heading: delete
 subheading: Activities, books, toys
-mainpitch:
-  title: delete
-  description: delete
-description: delete
 intro:
   blurbs:
     - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg

@@ -1,6 +1,6 @@
 import React, { useState } from "react";
 import { Link } from "gatsby";
-import github from "../img/github-icon.svg";
+import pinterest from "../img/social/pinterest.svg";
 import logo from "../img/logo.svg";
 
 const Navbar = () => {
@@ -15,7 +15,7 @@ const Navbar = () => {
       <div className="container">
         <div className="navbar-brand">
           <Link to="/" className="navbar-item" title="Logo">
-            <img src={logo} alt="Kaldi" style={{ width: "88px" }} />
+            <img src={logo} alt="Kaldi" style={{ width: "200px" }} />
           </Link>
           {/* Hamburger menu */}
           <button
@@ -66,12 +66,10 @@ const Navbar = () => {
           <li className="navbar-end has-text-centered">
             <a
               className="navbar-item"
-              href="https://github.com/netlify-templates/gatsby-starter-netlify-cms"
-              target="_blank"
-              rel="noopener noreferrer"
+              href="https://pinterest.com/amyhaddad11"
             >
               <span className="icon">
-                <img src={github} alt="Github" />
+                <img src={pinterest} alt="Pinterest" />
               </span>
             </a>
           </li>
