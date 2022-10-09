@@ -20,6 +20,8 @@ title: "Baby's Weekly and Daily Log Book: Track your newborn's routine (feeds,
 * **Treasure your special baby moments** with this special keepsake.
 * Designed, printed and published in the USA.
 
+[P﻿urchase Baby's Weekly and Daily Log Book](https://www.amazon.com/Babys-Weekly-Daily-Log-Book/dp/B0BFWFL8FS/ref=sr_1_1?crid=3FYYT7XMAINGB&keywords=daily+and+weekly+baby+log&qid=1665326969&s=books&sprefix=daily+and+weekly+baby+log%2Cstripbooks%2C101&sr=1-1)
+
 I was a sleep-deprived, first-time parent looking to establish a routine and monitor my newborn’s day: feeds, activities, sleep, diapers, and supplements. As a nursing new mom with a low birth weight baby, I also needed to track my baby’s weight. And I wanted to document all of the special moments we had together each week.How do I stay organized with all of these details, while running on little sleep.\
 \
 Baby’s Weekly & Daily Log Book was the solution.\
@@ -31,3 +33,5 @@ I established a routine with my baby by keeping track of his activities and slee
 When I noticed a change in my son’s behavior, like when he hit the four-month sleep regression and later began teething, I’d review through the weekly and daily reflection pages to see if a change in his feeds, activities, or nap times affected him. It’s what I needed to get back on track.\
 \
 Baby’s Weekly & Daily Log Book is a special memento of how my baby has changed and the special times we have together. One day my baby boy will read -- in my handwriting -- my notes and observations, as well as the details of each day.
+
+![](/img/baby-log-6.png)
