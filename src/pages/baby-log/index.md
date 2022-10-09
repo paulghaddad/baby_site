@@ -21,8 +21,6 @@ title: Baby's Weekly and Daily Log Book
 
   ![Weekly plan](/img/weekly.jpg)
 * **Stay organized** by planning for the upcoming week.
-
-  ![Weight tracker page](/img/weight.jpg)
 * **Monitor your baby’s weight** with the Weight Tracker page.
 * **Treasure your special baby moments** with this special keepsake.
 * Designed, printed and published in the USA.
