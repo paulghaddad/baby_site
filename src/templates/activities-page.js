@@ -5,7 +5,7 @@ import Layout from "../components/Layout";
 import Content, { HTMLContent } from "../components/Content";
 
 // eslint-disable-next-line
-export const Activities34PageTemplate = ({ title, content, contentComponent }) => {
+export const ActivitiesPageTemplate = ({ title, content, contentComponent }) => {
   const PageContent = contentComponent || Content;
 
   return (
@@ -26,18 +26,18 @@ export const Activities34PageTemplate = ({ title, content, contentComponent }) =
   );
 };
 
-Activities34PageTemplate.propTypes = {
+ActivitiesPageTemplate.propTypes = {
   title: PropTypes.string.isRequired,
   content: PropTypes.string,
   contentComponent: PropTypes.func,
 };
 
-const Activities34Page = ({ data }) => {
+const ActivitiesPage = ({ data }) => {
   const { markdownRemark: post } = data;
 
   return (
     <Layout>
-      <Activities34PageTemplate
+      <ActivitiesPageTemplate
         contentComponent={HTMLContent}
         title={post.frontmatter.title}
         content={post.html}
@@ -46,14 +46,14 @@ const Activities34Page = ({ data }) => {
   );
 };
 
-Activities34Page.propTypes = {
+ActivitiesPage.propTypes = {
   data: PropTypes.object.isRequired,
 };
 
-export default Activities34Page;
+export default ActivitiesPage;
 
-export const activities34PageQuery = graphql`
-  query Activities34Page($id: String!) {
+export const activitiesPageQuery = graphql`
+  query ActivitiesPage($id: String!) {
     markdownRemark(id: { eq: $id }) {
       html
       frontmatter {

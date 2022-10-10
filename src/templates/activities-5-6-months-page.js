@@ -52,7 +52,7 @@ Activities56Page.propTypes = {
 
 export default Activities56Page;
 
-export const activities012PageQuery = graphql`
+export const activities56PageQuery = graphql`
   query Activities56Page($id: String!) {
     markdownRemark(id: { eq: $id }) {
       html
