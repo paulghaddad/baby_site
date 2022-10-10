@@ -21,7 +21,7 @@ Conclude this “parts of the body” activity with the song **“Head, Shoulder
 
 It’s so simple, but so beneficial and fun for baby!
 
-Sit on the floor with baby sitting in front of you. Then, give baby a small ball to hold. A ball without ridges, like a wooden or rubber ball, will give baby a good challenge.
+Sit on the floor with baby sitting in front of you. Then, give baby a small ball to hold. A ball without ridges or textures, like a wooden or rubber ball, will give baby a good challenge.
 
 Inevitably, baby will drop the ball. At this point, encourage him to pick it back up. Or he may do this on his own.
 
@@ -119,13 +119,13 @@ One of his favorites was to simply **pull out each cup when they’re stacked in
 
 ![Measuring cups stacked up](/img/screen-shot-2022-10-07-at-10.14.56-am.png)
 
-He also loved to knock them over when I’d **stack them up like a tower**. 
+He loved to knock them over when I’d **stack them up like a tower**. 
 
 ![](/img/screen-shot-2022-10-07-at-10.15.49-am.png)
 
 It’s also fun to **put a ball in each cup**, and have him pull the ball out of the cup. 
 
-He’d also use the handle to dump the ball, causing it to roll. Then, he’d want to chase after it!
+Sometimes, he’d use the handle to dump the ball, causing it to roll. Then, he’d want to chase after it!
 
 ![Hide and seek with measuring cups](/img/img_9264.jpeg)
 
@@ -187,13 +187,13 @@ Measuring cups
 
 ![Baby sitting ](/img/img_9491.jpeg)
 
-Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far -- too far from his reach. 
+Hayden was content in the sitting position. But then came the day when a ball he was playing with rolled a bit too far from his reach. 
 
 He just sat there, looking at it. I could see him thinking: “what do I do now?!”
 
 Thus began a game that we liked to play, which helped him learn how to get out of the sitting position, so he could retrieve the toy.
 
-Begin with baby in a sitting position and station a desired toy out of reac**h**. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
+Begin with baby in a sitting position and station a desired toy out of reach. Or give baby a toy, like a ball, and wait for him to drop it. A ball is ideal because it’ll roll once dropped.
 
 ![Baby leaning forward from sitting position](/img/img_9492.jpeg)
 
