@@ -9,7 +9,7 @@ import { withPrefix } from "gatsby";
 const TemplateWrapper = ({ children }) => {
   const { title, description } = useSiteMetadata();
   return (
-    <div>
+    <div class="body">
       <Helmet>
         <html lang="en" />
         <title>{title}</title>
@@ -32,6 +32,8 @@ const TemplateWrapper = ({ children }) => {
           href={`${withPrefix("/")}img/favicon-16x16.png`}
           sizes="16x16"
         />
+
+        <link rel="stylesheet" href="https://use.typekit.net/mgk1wri.css" />
 
         <meta name="theme-color" content="#fff" />
 
