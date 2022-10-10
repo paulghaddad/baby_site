@@ -11,13 +11,11 @@ title: "Play to Learn "
 
 After I fed Hayden in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
 
-Hayden would sit in his [BabyBjörn bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=), which was placed near the kitchen table, as I
+Hayden would sit in his [BabyBjörn bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=), which was placed near the kitchen table, as I showed -- **and involved** -- him in the breakfast preparation.
 
-showed -- **and involved** -- him in the breakfast preparation.
+I’d open the bag of frozen blueberries and bring them over to him to let him take a look.  
 
-I’d open the bag of frozen blueberries and bring them over to him to let him take a look. 
-
-Then, I’d go over to the kitchen cupboard and pull out a bowl. I’d bring it over to him and let him explore it with me. He loved to touch it, as I’d talk about the color, texture, and weight. I’d do the same thing with a spoon, placemat, and napkin, along with any other breakfast items. 
+Then, I’d go over to the kitchen cupboard and pull out a bowl. I’d bring it over to him and let him explore it with me. He loved to touch it, as I’d **talk about the color, texture, and weight**. I’d do the same thing with a spoon, placemat, and napkin, along with any other breakfast items. 
 
 **The process mesmerized him**. 
 
@@ -149,7 +147,7 @@ Kitchen exploration was one of my favorite things to do with Hayden around this 
 
 I’d wash some fruits and veggies, such as an apple, carrot, potato, lime, and bell pepper, in advance and put them in a colander. I’d try to select a variety of colors, shapes, and textures. 
 
-At the kitchen table, I’d sit with Hayden on my lap and we’d explore the c**olander of produce together** -- talking about and touching each one.
+At the kitchen table, I’d sit with Hayden on my lap and we’d explore the **colander of produce together** -- talking about and touching each one.
 
 ![Kitchen utensils](/img/img_9253.jpeg)
 
