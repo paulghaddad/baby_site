@@ -19,6 +19,8 @@ Conclude this “parts of the body” activity with the song **“Head, Shoulder
 
 ## **2.** Ball pick up
 
+![Baby picking up ball](/img/img_9487.jpeg)
+
 It’s so simple, but so beneficial and fun for baby!
 
 Sit on the floor with baby sitting in front of you. Then, give baby a small ball to hold. A ball without ridges or textures, like a wooden or rubber ball, will give baby a good challenge.
