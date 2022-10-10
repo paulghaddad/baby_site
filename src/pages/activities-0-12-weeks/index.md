@@ -23,11 +23,11 @@ This activity is especially fun now that he’s older and much more talkative; h
 
 #### **Suggested Items**:
 
-Art Page-A-Day Gallery Calendar 
+[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
 
-Baby Animals 2022 Box Calendar
+[Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
 
-N﻿ational Parks 2022 Box Calendar
+[N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
 
 ## 2. Customize your play gym
 
