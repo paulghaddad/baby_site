@@ -87,11 +87,13 @@ Then, as he began to become more mobile on his tummy, I used the mobiles to enco
 
 ## 4. Rattle, rattle, rattle
 
-![baby holding rattle](/img/image_5.jpg)
+![Baby holding rattle](/img/img_8629.jpeg)
 
 A rattle is a basic toy that can serve many purposes. **Use it to get your baby accustomed to different textures and sounds**. That’s why I found it useful to have several rattles. 
 
 Rattles also got my baby accustomed to opening and closing his hands to grasp objects.
+
+![baby holding rattle](/img/image_5.jpg)
 
 Here’s what I mean. You hold one end of the rattle and place the other end toward your baby’s hand. The idea is to have your baby grasp the other end of the rattle. 
 
@@ -161,15 +163,15 @@ Make time for your baby to study -- faces that is. 
 
 My baby loves to study faces. It’s a fascination that began early on and continues to this day.
 
-We’d lay on his playmat and explore each others’ faces. Sometimes I let him explore my face: I’d take his hand and touch my face and point out different facial features. “This is mommy’s nose,” I’d say as I’d guide his hand to touch my nose. 
+We’d lay on his playmat and explore each others’ face. Sometimes I let him explore my face: I’d take his hand and touch my face and point out different facial features. “This is mommy’s nose,” I’d say as I’d guide his hand to touch my nose. 
 
 Other times, I’d point out different parts of his face: nose, ears, chin, etc. “This is Hayden’s nose,” I’d say as I’d point to his nose. 
 
-A mirror is handy to have around for this activity. That way, it’s a multi-sensorial experience: baby can see where his nose is, and hear and feel you point out each facial feature. 
+**A mirror is handy to have around for this activity**. That way, it’s a multi-sensorial experience: baby can see where his nose is, and hear and feel you point out each facial feature. 
 
-Besides, babies love to look at themselves in the mirror -- so it’s definitely a worthy investment.
+Besides, babies love to look at themselves in the mirror -- so it’s definitely a worthy purchase.
 
-Baby can also study faces by looking at pictures of babies. Books about babies, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), worked great for this activity. 
+**Baby can also study faces by looking at pictures of babies**. Books about babies, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), worked great for this activity. 
 
 These books also work great during tummy time. Prop open a book and lay it against a wall, so baby has something interesting to look at while on his tummy.
 
