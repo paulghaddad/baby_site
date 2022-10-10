@@ -9,7 +9,7 @@ title: "Play to Learn "
 
 ![Abstract art](/img/pexels-steve-johnson-1269968.jpg)
 
-I began sharing my passion for art with Hayden very early on. I purchased the [Art Page-A-Day Gallery](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) calendar. 
+I began sharing my passion for art with Hayden very early on. I purchased the Art Page-A-Day Gallery calendar. 
 
 Then, I tore off a few pages from a calendar. **We’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.**
 
@@ -17,7 +17,7 @@ I’d point out and describe what I saw; I’d also ask him questions, always pa
 
 This was such a hit!
 
-**So I did the same thing with baby animals and beautiful places**. I purchased a [baby animal](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1) and [national park](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3) calendars. 
+**So I did the same thing with baby animals and beautiful places**. I purchased a baby animal and national park calendars. 
 
 This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
 
@@ -25,9 +25,9 @@ This activity is especially fun now that he’s older and much more talkative; h
 
 Art Page-A-Day Gallery Calendar 
 
-[Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+Baby Animals 2022 Box Calendar
 
-[N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
+N﻿ational Parks 2022 Box Calendar
 
 ## 2. Customize your play gym
 
@@ -35,7 +35,7 @@ Art Page-A-Day Gallery Calendar 
 
 Early on, Hayden wasn’t engaging with some of the items that came with his play gym.
 
-S﻿o I customized it myself with three [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1).
+S﻿o I customized it myself with three black and white cards.
 
 I punched a hole in each one and attached it to the play gym structure with a string. The cards dangled from the top of the play gym. There are images on both sides of the cards, which made them fun to look at -- especially when they moved.
 
@@ -205,7 +205,7 @@ We know that black and white cards matter for babies. But did you realize the ma
 
 **Hang black and white cards from your play gym**. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
 
-I took three [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), punched a hole in each one and attached them to the play gym with a string. The cards dangled from the top of the play gym. There were images on both sides of the cards, which make them fun to look at -- especially when they moved.
+I took three [](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)black and white cards, punched a hole in each one and attached them to the play gym with a string. The cards dangled from the top of the play gym. There were images on both sides of the cards, which make them fun to look at -- especially when they moved.
 
 Eventually, he learned to bat at the cards and loved making them move!
 
@@ -233,7 +233,7 @@ One day baby will love being on his tummy. Until that day comes, make tummy time
 
 While baby is on his tummy on his playmat: 
 
-* **Prop up some [black and white cards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)** against the wall for baby to look at. 
+* **Prop up some black and white cards** against the wall for baby to look at. 
 * **Lean a mirror against the wall** so baby can look at himself.  
 * **Prop a board book against the wall**, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) or [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), while Hayden was on his tummy.
 * **Use a mobile during tummy time**. Hayden loved this! It offered a new perspective and motivated him to lift that heavy head!
