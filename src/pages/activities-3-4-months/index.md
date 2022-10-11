@@ -129,13 +129,13 @@ Other times, I’d place an object to the side or in front of him and he’d pra
 
 **Sensory books** are great to use with baby while sitting. I’d open up a page in a book and Hayden would lean forward to touch and explore.
 
-#### **Suggested items**:
+#### **Suggested books**:
 
-[See, Touch, Feel: A First Sensory Book by Roger Priddy](https://www.amazon.com/See-Touch-Feel-First-Sensory/dp/0312527594/ref=sr_1_1?crid=2BLETOGPDLC2P&keywords=See%2C+Touch%2C+Feel%3A+A+First+Sensory+Book+by+by+Roger+Priddy&qid=1664892386&sprefix=see%2C+touch%2C+feel+a+first+sensory+book+by+by+roger+priddy%2Caps%2C159&sr=8-1)
+See, Touch, Feel: A First Sensory Book by Roger Priddy
 
-[See, Touch, Feel: ABC by Roger Priddy](https://www.amazon.com/See-Touch-Feel-Roger-Priddy/dp/0312529708/ref=sr_1_1?crid=2ZKJDC4UD67KG&keywords=See%2C+Touch%2C+Feel%3A+ABC+by+Roger+Priddy&qid=1664892409&sprefix=see%2C+touch%2C+feel+abc+by+roger+priddy%2Caps%2C116&sr=8-1)
+See, Touch, Feel: ABC by Roger Priddy
 
-[Farm (My First)  by Tiger Tales](https://www.amazon.com/Farm-My-First-Touch-Feel/dp/1589256344/ref=sr_1_6?crid=CYKM5UUYPYM5&keywords=Farm+by+Tiger+Tales&qid=1664892429&sprefix=farm+by+tiger+tales%2Caps%2C99&sr=8-6)
+Farm (My First)  by Tiger Tales
 
 ## 6. Chef baby
 
