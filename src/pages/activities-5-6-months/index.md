@@ -277,9 +277,11 @@ Have a checklist that contains all of the things you need to bring for baby. It'
 
 To warm Hayden up to the idea of traveling, I purchased a few travel-related books for him in advance of the trip and read them to him. Here are a few of my favorites:
 
-* [Time for a Trip](https://www.amazon.com/gp/product/1454930160/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [B Is for Bison: A National Parks Primer](https://www.amazon.com/gp/product/1423658299/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [All Aboard Pacific Northwest: A Recreation Primer](https://www.amazon.com/gp/product/1423646010/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+Time for a Trip by by Phillis Gershator
+
+All Aboard Pacific Northwest by by Haily Meyers 
+
+B is for Bison by by Greg Paprocki
 
 ## **13.** Water art
 
