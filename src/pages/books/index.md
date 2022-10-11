@@ -19,7 +19,9 @@ Ten Little Fingers and Ten Little Toes by Mem Fox
 
 The Very Hungry Caterpillar by Eric Carle
 
-I Love You to the Moon and Back by Amelia Hepworth\
+I Love You to the Moon and Back by Amelia Hepworth
+
+\
 Pat the Bunny by Dorothy Kunhardt
 
 Goodnight Moon by Margaret Wise Brown
