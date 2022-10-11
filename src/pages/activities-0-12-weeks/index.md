@@ -131,17 +131,17 @@ But I soon found it more comfortable to lay on our backs, side-by-side on his pl
 
 #### **Suggested books:**
 
-[Panda Bear, Panda Bear, What Do You See?](https://www.amazon.com/Panda-Bear-What-You-See/dp/B005DCA17C/ref=sr_1_1?crid=1TYHK9YOKINT0&keywords=Panda+Bear%2C+Panda+Bear%2C+What+Do+You+See%3F&qid=1663250233&s=books&sprefix=panda+bear%2C+panda+bear%2C+what+do+you+see+%2Cstripbooks%2C155&sr=1-1)
+Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.
 
-[Polar Bear, Polar Bear, What Do You Hear?](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=196MX6JCJMW2T&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F&qid=1663250260&s=audible&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+%2Caudible%2C73&sr=1-1-catcorr) 
+Polar Bear, Polar Bear, What Do You Hear? by Bill Martin Jr.
 
-[I Love You to the Moon and Back](https://www.amazon.com/I-Love-You-Moon-Back/dp/B09VCTPXLG/ref=sr_1_1?crid=H1643JNS6G43&keywords=I+Love+You+to+the+Moon+and+Back&qid=1663250277&s=audible&sprefix=i+love+you+to+the+moon+and+back%2Caudible%2C135&sr=1-1)
+I Love You to the Moon and Back by Amelia Hepworth
 
-[Goodnight Moon](https://www.amazon.com/Goodnight-Moon-audiobook/dp/B001E4SMP6/ref=sr_1_1?crid=2NPLEX6UJTQDY&keywords=Goodnight+Moon&qid=1663250292&s=audible&sprefix=goodnight+moon%2Caudible%2C88&sr=1-1)
+Goodnight Moon by Margaret Wise Brown
 
-[National Geographic Kids Little Kids First Board Book: Animals On the Go](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426333129/ref=sr_1_1?crid=1C08M4U9NJ9QU&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Animals+On+the+Go&qid=1663250309&s=audible&sprefix=national+geographic+kids+little+kids+first+board+book+animals+on+the+go%2Caudible%2C95&sr=1-1)
+National Geographic Kids Little Kids First Board Book: Animals On the Go by Ruth Musgrave
 
-[National Geographic Kids Little Kids First Board Book: Ocean](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426334680/ref=sr_1_1?crid=ZGYZVVCKH4KU&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Ocean&qid=1663250323&s=audible&sprefix=national+geographic+kids+little+kids+first+board+book+ocean%2Caudible%2C241&sr=1-1)
+National Geographic Kids Little Kids First Board Book: Ocean by National Kids
 
 ## 7. Let the music play
 
@@ -179,9 +179,9 @@ These books also work great during tummy time. Prop open a book and lay it again
 
 Mirror
 
-[Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+Baby Faces by Jim Harbison
 
-[Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+Global Babies by The Global Fund for Children
 
 ## 9. The great outdoors
 
