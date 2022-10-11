@@ -81,15 +81,19 @@ I’ll say “can you please help me turn the page?” He’ll extend his arm, g
 
 #### **Suggested books**:
 
-[Where’s Spot?](https://www.amazon.com/Wheres-Spot-Eric-Hill/dp/0399240462/ref=asc_df_0399240462/?tag=hyprod-20&linkCode=df0&hvadid=312041961788&hvpos=&hvnetw=g&hvrand=87701769945528723&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1015223&hvtargid=pla-436146284818&psc=1#customerReviews)
+Where’s Spot? by Eric Hill
 
-[Dear Zoo](https://www.amazon.com/gp/product/141694737X/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+Dear Zoo by by Rod Campbell
 
-[Farm](https://www.amazon.com/gp/product/1589256344/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+Farm by Tiger Tales
 
-[See, Touch, Feel](https://www.amazon.com/gp/product/0312527594/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+See, Touch, Feel: A First Sensory Book by by Roger Priddy
 
-[See, Touch, Feel: ABC](https://www.amazon.com/gp/product/0312529708/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+See, Touch, Feel: ABC by Roger Priddy
+
+You’re My Little Baby by Eric Carle
+
+
 
 ## **5.** Hide and seek
 
