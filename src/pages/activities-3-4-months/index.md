@@ -247,15 +247,17 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 #### **Suggested books**:
 
-[Farm](https://www.amazon.com/gp/product/1589256344/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+Farm by Tiger Tales
 
-[Big Red Barn](https://www.amazon.com/Big-Barn-Margaret-Wise-Brown/dp/0694006246/ref=sr_1_1?keywords=The+big+red+barn&qid=1663250929&sr=8-1)
+Big Red Barn by Margaret Wise Brown
 
-[A Picnic with Monet](https://www.amazon.com/s?k=a+picnic+with+monet&sprefix=a+picnic%2Caps%2C105&ref=nb_sb_ss_ts-doa-p_1_8)
+A Picnic with Monet by Julie Merberg
 
-[In the Garden with Van Gogh](https://www.amazon.com/gp/product/0811834158/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+In the Garden with Van Gogh by Julie Merberg
 
-[My First I See You: A Mirror Book](https://www.amazon.com/gp/product/1534424547/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+In the Garden with Van Gogh by Julie Merberg
+
+My First I See You: A Mirror Book by Eric Carle
 
 ## 12. It’s laundry time
 
