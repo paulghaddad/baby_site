@@ -9,7 +9,7 @@ Do you have a little one and wonder:
 * What **developmental toys** should I introduce and when? And where can I buy them?
 * What **books** should I read to my baby?
 
-I’m Amy, and I’m a writer turned stay at home mom. I’d repeatedly ask myself these questions each month or two as my son, Hayden, got older. I couldn’t find answers to these questions all in one place, so I created Learning Babies.
+I’m Amy, and I’m a writer and programmer turned stay at home mom. I’d repeatedly ask myself these questions each month or two as my son, Hayden, got older. I couldn’t find answers to these questions all in one place, so I created Learning Babies.
 
 ![baby smiling](/img/02704a92-c1b3-49b9-878e-fd605b9354ef-1-.jpeg "baby smiling")
 
