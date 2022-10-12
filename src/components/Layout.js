@@ -44,10 +44,12 @@ const TemplateWrapper = ({ children }) => {
           property="og:image"
           content={`${withPrefix("/")}img/og-image.jpg`}
         />
+        <script async type="text/javascript" src="https://static.klaviyo.com/onsite/js/klaviyo.js?company_id=VDwCJ5"></script>
       </Helmet>
       <Navbar />
       <div>{children}</div>
       <Footer />
+
     </div>
   );
 };
