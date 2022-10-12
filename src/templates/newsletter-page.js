@@ -18,6 +18,8 @@ export const NewsletterPageTemplate = ({ title, content, contentComponent }) => 
                 {title}
               </h2>
               <PageContent className="content" content={content} />
+
+              <div class="klaviyo-form-Wq9bTS"></div>
             </div>
           </div>
         </div>

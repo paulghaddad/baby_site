@@ -29,6 +29,7 @@ export const IndexPageTemplate = ({
             <div className="columns">
               <div className="column is-10 is-offset-1">
                 <div className="content">
+                  <h2 class="feature-header">Activities 0-6 months</h2>
                   <Features gridItems={intro.blurbs} />
                   <div className="column is-12">
                     <h3 className="has-text-weight-semibold is-size-2">
@@ -110,6 +111,7 @@ export const pageQuery = graphql`
                 gatsbyImageData(width: 240, quality: 64, layout: CONSTRAINED)
               }
             }
+            header
             text
             url
           }

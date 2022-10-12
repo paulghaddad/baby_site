@@ -11,6 +11,7 @@ description: delete
 intro:
   blurbs:
     - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg
+      header: 0-12 weeks
       url: /activities-0-12-weeks
       text: |-
         11 activities to try, including:
@@ -21,6 +22,7 @@ intro:
         *Artist baby
         *Customize your play gym . . . and many more!
     - image: /img/screen-shot-2022-09-16-at-9.38.54-am.png
+      header: 3-4 months
       url: /activities-3-4-months
       text: |
         13 activities to try, including:
@@ -31,6 +33,7 @@ intro:
         *Make time for mirror time
         *Aren't baby animals cute?! . . . and many more!
     - image: /img/img_9276.jpeg
+      header: 5-6 months
       url: /activities-5-6-months
       text: |-
         20 activities to try, including:
@@ -44,6 +47,7 @@ intro:
         *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
     - image: /img/img_9320.jpeg
+      header: 6 months+
       text: More activities for older babies coming soon!
   heading: Activities for ages 0-6 months (activities for more age groups coming soon!)
   description: Activities, books, and toys for babies
