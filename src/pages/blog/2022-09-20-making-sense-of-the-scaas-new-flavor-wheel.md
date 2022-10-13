@@ -1,7 +1,7 @@
 ---
 templateKey: blog-post
 title: A Food Education
-date: 2016-09-20T14:04:00.000Z
+date: 2022-09-20T14:04:00.000Z
 description: One of my biggest fears as a parent was raising a picky eater.
 featuredpost: false
 featuredimage: /img/img_9183.jpeg
