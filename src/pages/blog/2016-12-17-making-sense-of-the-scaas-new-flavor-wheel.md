@@ -8,8 +8,6 @@ featuredimage: /img/img_9183.jpeg
 tags:
   - food
 ---
-
-
 M﻿y husband and I are adventurous eaters and enjoy good, fresh food. When Hayden began solids, I wanted him to eat a variety of foods and appreciate a good meal.
 
 How does a mama help make that happen?!
