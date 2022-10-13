@@ -15,7 +15,7 @@ I’m Amy, and I’m a writer and programmer turned stay at home mom. I’d repe
 
 It provides **simple and easy activities organized by age**, from 0 to 6 months. I incorporate a little bit of everything: art, nature, sensory play, music, reading, and cooking. I also include the supplies you need and where you can buy them for each activity. 
 
-I’ll continue to add content for older babies and toddlers over time. So sign up for my newsletter for updates, as well as practical child development ideas.
+I’ll continue to add content for older babies and toddlers over time. So sign up for [my newsletter](https://www.learningbabies.com/newsletter) for updates, as well as practical child development ideas.
 
 I’ve also compiled useful developmental toys by age and a list of books for babies. 
 
