@@ -3,11 +3,11 @@ templateKey: toys-page
 path: /toys
 title: Toys for Baby
 ---
-As a first-time mom, I’ve found myself repeatedly asking this question: what toys should I introduce to my son, when, and where can I buy them? 
+As a first-time mom, I’ve found myself repeatedly asking this question: what toys should I introduce to Hayden, when, and where can I buy them? 
 
-So I’ve organized some toys, as well as other educational supplies, that I’ve used for my son by age.  
+So I’ve organized some toys that I’ve used for Hayden by age.  
 
-Oftentimes a toy or educational supplies you purchase for a two month old can be reused in a different way for a four month old. The activities section of this website to see how you can put these items to use.
+Oftentimes a toy or educational supplies you purchase for a two month old can be reused in a different way for a four month old. The [activities](https://www.learningbabies.com/activities) section of this website to see how you can put these items to use.
 
 ### 0-12 weeks
 
