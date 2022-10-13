@@ -5,11 +5,7 @@ title: Toys for Baby
 ---
 As a first-time mom, I’ve found myself repeatedly asking this question: what toys should I introduce to my son, when, and where can I buy them? 
 
-
-
 So I’ve organized some toys, as well as other educational supplies, that I’ve used for my son by age.  
-
-
 
 Oftentimes a toy or educational supplies you purchase for a two month old can be reused in a different way for a four month old. The activities section of this website to see how you can put these items to use.
 
@@ -22,8 +18,6 @@ Oftentimes a toy or educational supplies you purchase for a two month old can be
 [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
 
 [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
-
-[Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
 [Play Gym](https://lovevery.com/products/the-play-gym)  
 
@@ -38,8 +32,6 @@ Mirror
 [Wooden Heart Baby Teether](https://www.bellalunatoys.com/products/natural-wooden-baby-teether-heart?_pos=1&_sid=70a9a7b85&_ss=r)
 
 [Montessori Rolling Rattle](https://www.target.com/p/lovevery-montessori-rolling-rattle/-/A-82224593#lnk=sametab)
-
-
 
 ### 3-4 months
 
@@ -60,8 +52,6 @@ Mirror
 [Organic Teething Ring - Bear](https://www.bellalunatoys.com/products/senger-organic-teething-ring-animal-baby-bear?_pos=2&_sid=804518b67&_ss=r)
 
 [Organic Montessori Ball ](https://www.target.com/p/lovevery-organic-montessori-ball-baby-toy/-/A-82224598#lnk=sametab)
-
- 
 
 ### 5-6 months
 
