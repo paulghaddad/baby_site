@@ -3,7 +3,7 @@ templateKey: books-page
 path: /books
 title: Books for Baby
 ---
-A good book is hard to find. I’ve searched high and low for good books for my son. Here are some of his favorites.  
+A good book is hard to find. I’ve searched high and low for good books for my son. Here are some of his favorites (so far!).  
 
 ### Nursery Rhymes
 
