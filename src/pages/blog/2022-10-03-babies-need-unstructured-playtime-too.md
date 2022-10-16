@@ -7,7 +7,7 @@ description: “Kids need more unstructured play.” I’ve heard and read this 
 featuredpost: false
 featuredimage: /img/img_9300.jpeg
 ---
-But there’s also a need to step back. 
+But this need isn’t just relevant to school-aged kids. It’s also relevant to babies. Babies need unstructured playtime, too!
 
 Let baby take the lead without intervening with a new stimulus -- a book or toy -- or parental instruction. Instead, give baby an opportunity to discover, learn, and make connections on his own; you sit back and observe.
 
@@ -29,7 +29,7 @@ It also gives baby a chance to **think and make connections**. One day Hayden st
 
 Use the clues you pick up to create fun activities for baby during structured play time. 
 
-Above all, baby will love the freedom -- my baby certainly does! I think that’s because it’s a chance for him to explore and think -- similar reasons why adults appreciate some down time. 
+Above all, **baby will love the freedom** -- my baby certainly does! It’s a chance for him to explore and think -- similar reasons why adults appreciate some down time. 
 
 I find it useful to leave a few toys on Hayden’s playmat and let him go at it during unstructured play. I’m intentional with my toy selections. I’ll set a cup and a ball out, for example, and see if he can make the connection to put the ball in the cup. 
 
