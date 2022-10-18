@@ -33,6 +33,22 @@ collections:
       - { label: "Body", name: "body", widget: "markdown" }
       - { label: "Tags", name: "tags", widget: "list" }
 
+  - name: "activities"
+    label: "Activities"
+    folder: "src/pages/activities"
+    create: true
+    slug: "{{slug}}"
+    fields:
+      - {
+          label: "Template Key",
+          name: "templateKey",
+          widget: "hidden",
+          default: "index-page",
+        }
+      - { label: "Title", name: "title", widget: "string" }
+      - { label: "Body", name: "body", widget: "markdown" }
+      - { label: "Age", name: "age", widget: "string" }
+
   - name: "pages"
     label: "Pages"
     files:
