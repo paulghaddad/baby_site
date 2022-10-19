@@ -63,19 +63,25 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 [Dancing with Degas by Julie Merberg](https://www.amazon.com/Dancing-Degas-Julie-Merberg/dp/0811840476/ref=sr_1_1?crid=1ZJRT14EH8RDT&keywords=Dancing+with+Degas+by+Julie+Merberg&qid=1666140176&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=dancing+with+degas+by+julie+merberg%2Caps%2C116&sr=8-1)
 
+## **Sensory, Mirror, and Flip-the-Flap Books**
+
+[See, Touch, Feel: A First Sensory Book by by Roger Priddy](https://www.amazon.com/See-Touch-Feel-First-Sensory/dp/0312527594/ref=sr_1_1?keywords=See%2C+Touch%2C+Feel%3A+A+First+Sensory+Book+by+by+Roger+Priddy&qid=1666187559&sr=8-1)
+
+[See, Touch, Feel: ABC by Roger Priddy](https://www.amazon.com/See-Touch-Feel-Roger-Priddy/dp/0312529708/ref=sr_1_1?crid=3F64HP81GPINZ&keywords=See%2C+Touch%2C+Feel%3A+ABC+by+Roger+Priddy&qid=1666187575&sprefix=see%2C+touch%2C+feel+abc+by+roger+priddy%2Caps%2C110&sr=8-1)
+
+[Farm by Tiger Tales](https://www.amazon.com/Farm-My-First-Touch-Feel/dp/1589256344/ref=sr_1_1?crid=NRW6KTX3VYP2&keywords=Farm+by+Tiger+Tales&qid=1666187591&sprefix=farm+by+tiger+tales%2Caps%2C99&sr=8-1)
+
+[You’re My Little Baby by Eric Carle](https://www.amazon.com/Youre-Little-Baby-Touch-Feel/dp/1534474935/ref=sr_1_1?crid=6BTEZASSDS8B&keywords=You%E2%80%99re+My+Little+Baby+by+Eric+Carle&qid=1666187609&sprefix=farm+by+tiger+tales%2Caps%2C85&sr=8-1)
+
+[My First I See You: A Mirror Book by Eric Carle](https://www.amazon.com/My-First-See-You-Mirror/dp/1534424547/ref=sr_1_1?crid=1K1INUY8B2A8D&keywords=My+First+I+See+You%3A+A+Mirror+Book&qid=1666187911&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&s=books&sprefix=my+first+i+see+you+a+mirror+book+%2Cstripbooks%2C84&sr=1-1)
+
+[Where’s Spot? by Eric Hill](https://www.amazon.com/Wheres-Spot-color-Eric-Hill/dp/0142501263/ref=sr_1_1?crid=34DMTE5G4LBGE&keywords=Where%E2%80%99s+Spot%3F+by+Eric+Hill&qid=1666187621&qu=eyJxc2MiOiIwLjk4IiwicXNhIjoiMC44OCIsInFzcCI6IjAuOTIifQ%3D%3D&sprefix=where+s+spot+by+eric+hill%2Caps%2C116&sr=8-1)
+
+[Dear Zoo by ​​Rod Campbell](https://www.amazon.com/Dear-Zoo-Lift-Flap-Book/dp/141694737X/ref=sr_1_1?keywords=dear+zoo+a+lift-the-flap+book+board+book&qid=1666187746&qu=eyJxc2MiOiIxLjMzIiwicXNhIjoiMS4xMSIsInFzcCI6IjEuMDAifQ%3D%3D&s=books&sprefix=dear+zoo%2Cstripbooks%2C109&sr=1-1)
+
+[Oh Dear! by ​​Rod Campbell](https://www.amazon.com/Oh-Dear-Lift-Flap-Friends/dp/1534443193/ref=sr_1_1?crid=VXX32K4FB619&keywords=Oh+Dear%21&qid=1666187792&qu=eyJxc2MiOiIwLjY1IiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&s=books&sprefix=oh+dear+%2Cstripbooks%2C117&sr=1-1)
 
 
-### Sensory and Flip-the-Flap Books
-
-See, Touch, Feel: A First Sensory Book by by Roger Priddy
-
-See, Touch, Feel: ABC by Roger Priddy
-
-Farm by Tiger Tales
-
-You’re My Little Baby by Eric Carle
-
-Where’s Spot? by Eric Hill
 
 ### Nature and Things in Our World
 
