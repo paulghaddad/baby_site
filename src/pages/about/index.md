@@ -22,3 +22,5 @@ I’ve also compiled useful developmental toys by age and a list of books for ba
 Learning through play is a lot of fun when you have the resources you need to do your job. I hope this website can help you along your journey.
 
 E﻿mail me at: [amy@amymhaddad.com](mailto:amy@amymhaddad.com)
+
+Disclosure: As an Amazon Associate, I earn from qualifying purchases through links on this site at no additional cost to you.
