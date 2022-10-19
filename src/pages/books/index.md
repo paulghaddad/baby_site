@@ -85,24 +85,24 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 ### Nature and Things in Our World
 
-National Geographic Kids Look and Learn: Things That Go by National Kids
+[National Geographic Kids Look and Learn: Things That Go by National Kids](https://www.amazon.com/National-Geographic-Kids-Look-Learn/dp/1426317069/ref=sr_1_1?crid=251O2D59SJJA5&keywords=National+Geographic+Kids+Look+and+Learn%3A+Things+That+Go+by+National+Kids&qid=1666187937&s=books&sprefix=national+geographic+kids+look+and+learn+things+that+go+by+national+kids%2Cstripbooks%2C137&sr=1-1)
 
-National Geographic Kids Look and Learn: Colors! by National Kids
+[National Geographic Kids Look and Learn: Colors! by National Kids](https://www.amazon.com/National-Geographic-Kids-Look-Learn/dp/1426309295/ref=sr_1_1?crid=12XQPZR8NGF3Q&keywords=National+Geographic+Kids+Look+and+Learn%3A+Colors%21+by+National+Kids&qid=1666187957&s=books&sprefix=national+geographic+kids+look+and+learn+colors+by+national+kids%2Cstripbooks%2C107&sr=1-1)
 
-Dinosaurs, Dinosaurs by Byron Barton
+[Dinosaurs, Dinosaurs by Byron Barton](https://www.amazon.com/Dinosaurs-Byron-Barton/dp/0694006254/ref=sr_1_1?crid=3EDLJL5XWVXLM&keywords=Dinosaurs%2C+Dinosaurs+by+Byron+Barton&qid=1666187974&qu=eyJxc2MiOiIwLjIyIiwicXNhIjoiMC4xOCIsInFzcCI6IjAuMDAifQ%3D%3D&s=books&sprefix=dinosaurs%2C+dinosaurs+by+byron+barton%2Cstripbooks%2C119&sr=1-1)
 
-The Very Hungry Caterpillar’s First Fall by Eric Carle
+[The Very Hungry Caterpillar’s First Fall by Eric Carle](https://www.amazon.com/Hungry-Caterpillars-First-World-Carle/dp/0593384768/ref=sr_1_1?crid=1KJSXNYA0LS1N&keywords=The+Very+Hungry+Caterpillar%E2%80%99s+First+Fall+by+Eric+Carle&qid=1666188008&s=books&sprefix=the+very+hungry+caterpillar+s+first+fall+by+eric+carle%2Cstripbooks%2C120&sr=1-1)
 
-Hello, World! Weather by Jill McDonald
+[Hello, World! Weather by Jill McDonald](https://www.amazon.com/Hello-World-Weather-Jill-McDonald/dp/0553521012/ref=sr_1_1?crid=2X97ZPSXWB5C1&keywords=Hello%2C+World%21+Weather+by+Jill+McDonald&qid=1666188024&s=books&sprefix=hello%2C+world+weather+by+jill+mcdonald%2Cstripbooks%2C83&sr=1-1)
 
-Hello, World! Solar System by Jill McDonald
+[Hello, World! Solar System by Jill McDonald](https://www.amazon.com/Hello-World-Solar-System-McDonald/dp/0553521039/ref=sr_1_3?crid=UGMWA9HRQKV1&keywords=Hello%2C+World%21+Solar+System+by+Jill+McDonald&qid=1666188042&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&s=books&sprefix=hello%2C+world+solar+system+by+jill+mcdonald%2Cstripbooks%2C88&sr=1-3)
 
-Freight Train by Donald Crews
+[Freight Train by Donald Crews](https://www.amazon.com/Freight-Train-Board-Caldecott-Collection/dp/0688149006/ref=sr_1_1?crid=2K04HNTBUODS8&keywords=Freight+Train+by+Donald+Crews&qid=1666188065&qu=eyJxc2MiOiIxLjk1IiwicXNhIjoiMS42NSIsInFzcCI6IjEuNTYifQ%3D%3D&s=books&sprefix=freight+train+by+donald+crews%2Cstripbooks%2C79&sr=1-1)
 
 ### Travel
 
-Time for a Trip by by Phillis Gershator
+[Time for a Trip by by Phillis Gershator](https://www.amazon.com/Time-Trip-Snuggle-Stories/dp/1454930160/ref=sr_1_1?crid=2GUG5E79Q4RAB&keywords=Time+for+a+Trip+by+by+Phillis+Gershator&qid=1666188082&s=books&sprefix=time+for+a+trip+by+by+phillis+gershator%2Cstripbooks%2C126&sr=1-1)
 
-All Aboard Pacific Northwest by by Haily Meyers 
+[All Aboard Pacific Northwest by Haily Meyers](https://www.amazon.com/s?k=All+Aboard+Pacific+Northwest+by+by+Haily+Meyers&i=stripbooks&crid=3V66VXBSQZFU5&sprefix=all+aboard+pacific+northwest+by+by+haily+meyers%2Cstripbooks%2C91&ref=nb_sb_noss) 
 
-B is for Bison by by Greg Paprocki
+[B is for Bison by by Greg Paprocki](https://www.amazon.com/Bison-National-Parks-Primer-BabyLit/dp/1423658299/ref=sr_1_1?crid=31J4REHISXHHW&keywords=B+is+for+Bison+by+by+Greg+Paprocki&qid=1666188121&s=books&sprefix=b+is+for+bison+by+by+greg+paprocki%2Cstripbooks%2C94&sr=1-1)
