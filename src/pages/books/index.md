@@ -3,7 +3,7 @@ templateKey: books-page
 path: /books
 title: Books for Baby
 ---
-A good book is hard to find. I’ve searched high and low for good books for my son. Here are some of his favorites (so far!).  
+A good book is hard to find. Here are some of Hayden’s favorites (so far!).  
 
 ### Nursery Rhymes
 
@@ -65,7 +65,7 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 ## **Sensory, Mirror, and Flip-the-Flap Books**
 
-[See, Touch, Feel: A First Sensory Book by by Roger Priddy](https://www.amazon.com/See-Touch-Feel-First-Sensory/dp/0312527594/ref=sr_1_1?keywords=See%2C+Touch%2C+Feel%3A+A+First+Sensory+Book+by+by+Roger+Priddy&qid=1666187559&sr=8-1)
+[See, Touch, Feel: A First Sensory Book by Roger Priddy](https://www.amazon.com/See-Touch-Feel-First-Sensory/dp/0312527594/ref=sr_1_1?keywords=See%2C+Touch%2C+Feel%3A+A+First+Sensory+Book+by+by+Roger+Priddy&qid=1666187559&sr=8-1)
 
 [See, Touch, Feel: ABC by Roger Priddy](https://www.amazon.com/See-Touch-Feel-Roger-Priddy/dp/0312529708/ref=sr_1_1?crid=3F64HP81GPINZ&keywords=See%2C+Touch%2C+Feel%3A+ABC+by+Roger+Priddy&qid=1666187575&sprefix=see%2C+touch%2C+feel+abc+by+roger+priddy%2Caps%2C110&sr=8-1)
 
@@ -103,6 +103,8 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 [Time for a Trip by by Phillis Gershator](https://www.amazon.com/Time-Trip-Snuggle-Stories/dp/1454930160/ref=sr_1_1?crid=2GUG5E79Q4RAB&keywords=Time+for+a+Trip+by+by+Phillis+Gershator&qid=1666188082&s=books&sprefix=time+for+a+trip+by+by+phillis+gershator%2Cstripbooks%2C126&sr=1-1)
 
-[All Aboard Pacific Northwest by Haily Meyers](https://www.amazon.com/s?k=All+Aboard+Pacific+Northwest+by+by+Haily+Meyers&i=stripbooks&crid=3V66VXBSQZFU5&sprefix=all+aboard+pacific+northwest+by+by+haily+meyers%2Cstripbooks%2C91&ref=nb_sb_noss) 
+[All Aboard Pacific Northwest: A Recreation Primer by Haily Meyers ](https://www.amazon.com/All-Aboard-Pacific-Northwest-Recreation/dp/1423646010/ref=sr_1_1?crid=38PKAE6CSP659&keywords=All+Aboard+Pacific+Northwest%3A+A+Recreation+Primer+by+Haily+Meyers&qid=1666188449&s=books&sprefix=all+aboard+pacific+northwest+a+recreation+primer+by+haily+meyers%2Cstripbooks%2C92&sr=1-1)
+
+[All Aboard! National Parks: A Wildlife Primer by Haily Meyers](https://www.amazon.com/All-Aboard-National-Parks-Wildlife/dp/1423642368/ref=sr_1_1?crid=3N931XVCBE82V&keywords=All+Aboard%21+National+Parks%3A+A+Wildlife+Primer+by+Haily+Meyers&qid=1666188464&s=books&sprefix=all+aboard+national+parks+a+wildlife+primer+by+haily+meyers%2Cstripbooks%2C125&sr=1-1)
 
 [B is for Bison by by Greg Paprocki](https://www.amazon.com/Bison-National-Parks-Primer-BabyLit/dp/1423658299/ref=sr_1_1?crid=31J4REHISXHHW&keywords=B+is+for+Bison+by+by+Greg+Paprocki&qid=1666188121&s=books&sprefix=b+is+for+bison+by+by+greg+paprocki%2Cstripbooks%2C94&sr=1-1)
