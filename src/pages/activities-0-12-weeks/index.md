@@ -131,17 +131,21 @@ But I soon found it more comfortable to lay on our backs, side-by-side on his pl
 
 #### **Suggested books:**
 
-Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.
+[Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.](https://www.amazon.com/Panda-Bear-What-Board-Book/dp/0805080783/ref=sr_1_1?crid=3M00FWYTW56PZ&keywords=Panda+Bear%2C+Panda+Bear+What+Do+You+See%3F+by+Bill+Martin+Jr.&qid=1666139760&sprefix=panda+bear%2C+panda+bear+what+do+you+see+by+bill+martin+jr.%2Caps%2C125&sr=8-1)
 
-Polar Bear, Polar Bear, What Do You Hear? by Bill Martin Jr.
+[Polar Bear, Polar Bear, What Do You Hear? by Bill Martin Jr.](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=1V2H8HVB44FJY&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F+by+Bill+Martin+Jr.&qid=1666139776&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+by+bill+martin+jr.%2Caps%2C82&sr=8-1)
 
-I Love You to the Moon and Back by Amelia Hepworth
+[Brown Bear, Brown Bear, What Do You See? by Bill Martin Jr. ](https://www.amazon.com/Brown-Bear-What-You-See/dp/0805047905/ref=sr_1_1?crid=1VGBWE4LCOBVS&keywords=Brown+Bear%2C+Brown+Bear%2C+What+Do+You+See%3F+by+Bill+Martin+Jr.&qid=1666139791&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=brown+bear%2C+brown+bear%2C+what+do+you+see+by+bill+martin+jr.%2Caps%2C87&sr=8-1)[](https://www.amazon.com/I-Love-You-Moon-Back/dp/1589255518/ref=sr_1_1?crid=G3F5KAWSHTRM&keywords=I+Love+You+to+the+Moon+and+Back+by+Amelia+Hepworth&qid=1666139630&qu=eyJxc2MiOiIwLjMyIiwicXNhIjoiMC4xOCIsInFzcCI6IjAuMjgifQ%3D%3D&sprefix=i+love+you+to+the+moon+and+back+by+amelia+hepworth%2Caps%2C134&sr=8-1)
 
-Goodnight Moon by Margaret Wise Brown
+[I Love You to the Moon and Back by Amelia Hepworth](https://www.amazon.com/I-Love-You-Moon-Back/dp/1589255518/ref=sr_1_1?crid=G3F5KAWSHTRM&keywords=I+Love+You+to+the+Moon+and+Back+by+Amelia+Hepworth&qid=1666139630&qu=eyJxc2MiOiIwLjMyIiwicXNhIjoiMC4xOCIsInFzcCI6IjAuMjgifQ%3D%3D&sprefix=i+love+you+to+the+moon+and+back+by+amelia+hepworth%2Caps%2C134&sr=8-1)
 
-National Geographic Kids Little Kids First Board Book: Animals On the Go by Ruth Musgrave
+[Goodnight Moon by Margaret Wise Brown](https://www.amazon.com/Goodnight-Moon-Margaret-Wise-Brown/dp/0694003611/ref=sr_1_1?crid=1LNAUGX9ESD2C&keywords=Goodnight+Moon+by+Margaret+Wise+Brown&qid=1666139673&qu=eyJxc2MiOiIyLjM4IiwicXNhIjoiMi4zNCIsInFzcCI6IjEuODQifQ%3D%3D&sprefix=goodnight+moon+by+margaret+wise+brown%2Caps%2C129&sr=8-1)
 
-National Geographic Kids Little Kids First Board Book: Ocean by National Kids
+[National Geographic Kids Little Kids First Board Book: Animals On the Go by Ruth Musgrave ](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426333129/ref=sr_1_1?crid=33IP1SZM64SD6&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Animals+On+the+Go+by+Ruth+Musgrave&qid=1666139841&sprefix=national+geographic+kids+little+kids+first+board+book+animals+on+the+go+by+ruth+musgrave%2Caps%2C126&sr=8-1)
+
+[National Geographic Kids Little Kids First Board Book: Ocean by National Kids](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426334680/ref=sr_1_1?crid=U5VIMT03FY1F&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Ocean+by+National+Kids&qid=1666139861&sprefix=national+geographic+kids+little+kids+first+board+book+ocean+by+national+kids%2Caps%2C119&sr=8-1)
+
+[National Geographic Kids Look and Learn: Baby Animals by National Kids](https://www.amazon.com/National-Geographic-Kids-Look-Learn/dp/1426314825/ref=sr_1_1?crid=MGM9XI7LL5UN&keywords=National+Geographic+Kids+Look+and+Learn%3A+Baby+Animals+by+National+Kids&qid=1666139875&sprefix=national+geographic+kids+look+and+learn+baby+animals+by+national+kids%2Caps%2C118&sr=8-1)
 
 ## 7. Let the music play
 
@@ -179,9 +183,9 @@ These books also work great during tummy time. Prop open a book and lay it again
 
 Mirror
 
-Baby Faces by Jim Harbison
+[Baby Faces by Jim Harbison](https://www.amazon.com/Baby-Faces-Little-Grasshopper-Books/dp/1645586308/ref=sr_1_1?crid=VH10VVJLKX3Q&keywords=Baby+Faces+by+Jim+Harbison&qid=1666188675&sprefix=baby+faces+by+jim+harbison%2Caps%2C408&sr=8-1)
 
-Global Babies by The Global Fund for Children
+[Global Babies by The Global Fund for Children](https://www.amazon.com/Global-Babies-Fund-Children/dp/1580891748/ref=sr_1_1?crid=1NK2QBDGEPXTX&keywords=Global+Babies+by+The+Global+Fund+for+Children&qid=1666188695&qu=eyJxc2MiOiIwLjU4IiwicXNhIjoiMC40NSIsInFzcCI6IjAuNDcifQ%3D%3D&sprefix=global+babies+by+the+global+fund+for+children%2Caps%2C92&sr=8-1)
 
 ## 9. The great outdoors
 
@@ -254,9 +258,9 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 [beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) 
 
-[Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+[Baby Faces by Jim Harbison](https://www.amazon.com/Baby-Faces-Little-Grasshopper-Books/dp/1645586308/ref=sr_1_1?crid=VH10VVJLKX3Q&keywords=Baby+Faces+by+Jim+Harbison&qid=1666188675&sprefix=baby+faces+by+jim+harbison%2Caps%2C408&sr=8-1)
 
-[Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+[Global Babies by The Global Fund for Children](https://www.amazon.com/Global-Babies-Fund-Children/dp/1580891748/ref=sr_1_1?crid=1NK2QBDGEPXTX&keywords=Global+Babies+by+The+Global+Fund+for+Children&qid=1666188695&qu=eyJxc2MiOiIwLjU4IiwicXNhIjoiMC40NSIsInFzcCI6IjAuNDcifQ%3D%3D&sprefix=global+babies+by+the+global+fund+for+children%2Caps%2C92&sr=8-1)
 
 [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
 
