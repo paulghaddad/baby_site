@@ -43,7 +43,7 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 [Brown Bear, Brown Bear, What Do You See? by Bill Martin Jr. ](https://www.amazon.com/Brown-Bear-What-You-See/dp/0805047905/ref=sr_1_1?crid=1VGBWE4LCOBVS&keywords=Brown+Bear%2C+Brown+Bear%2C+What+Do+You+See%3F+by+Bill+Martin+Jr.&qid=1666139791&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=brown+bear%2C+brown+bear%2C+what+do+you+see+by+bill+martin+jr.%2Caps%2C87&sr=8-1)
 
-[Dear Zoo by Rod Campbell](https://www.amazon.com/s?k=Dear+Zoo+by+by+Rod+Campbell&crid=3MLHDXYORBPQC&sprefix=dear+zoo+by+by+rod+campbell%2Caps%2C110&ref=nb_sb_noss_2)
+[Dear Zoo by Rod Campbell](https://www.amazon.com/Dear-Zoo-Lift-Flap-Book/dp/141694737X/ref=sr_1_1?crid=3MLHDXYORBPQC&keywords=Dear+Zoo+by+by+Rod+Campbell&qid=1666140283&sprefix=dear+zoo+by+by+rod+campbell%2Caps%2C110&sr=8-1)
 
 [National Geographic Kids Look and Learn: Farm Animals by National Kids](https://www.amazon.com/National-Geographic-Kids-Look-Learn/dp/1426323077/ref=sr_1_1?crid=1CIBGP806YRB&keywords=National+Geographic+Kids+Look+and+Learn%3A+Farm+Animals+by+National+Kids&qid=1666139826&sprefix=national+geographic+kids+look+and+learn+farm+animals+by+national+kids%2Caps%2C152&sr=8-1)
 
