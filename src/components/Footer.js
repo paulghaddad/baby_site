@@ -73,6 +73,10 @@ const Footer = () => {
                     style={{ width: "1em", height: "1em" }}
                   />
                 </a>
+                <div className="disclosures">
+                  <p>Disclosure: As an Amazon Associate I earn from qualifying purchases through links on this site.</p>
+                  <p>All Learning Babies activities assume close supervision of your baby.</p>
+                </div>
               </div>
             </div>
           </div>
