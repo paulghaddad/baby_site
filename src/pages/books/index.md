@@ -7,7 +7,7 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 ### Nursery Rhymes
 
-[Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit](https://www.amazon.com/Mary-Engelbreits-Mother-Goose-Best-Loved/dp/0060081716/ref=sr_1_1?keywords=Mother+Goose%3A+One+Hundred+Best-Loved+Verses+by+Mary+Engelbreit&qid=1666139537&sr=8-1)
+[Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit](https://www.amazon.com/Mary-Engelbreits-Mother-Goose-Best-Loved/dp/0060081716)
 
 ### Classics and General Good Books
 
@@ -55,15 +55,15 @@ A good book is hard to find. I’ve searched high and low for good books for my 
 
 ### Art
 
-A Picnic with Monet by Julie Merberg
+[A Picnic with Monet by Julie Merberg](https://www.amazon.com/Picnic-Monet-Mini-Masters/dp/0811840468/ref=sr_1_1?crid=1L6GPP9LUHHEQ&keywords=A+Picnic+with+Monet+by+Julie+Merberg&qid=1666139909&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=a+picnic+with+monet+by+julie+merberg%2Caps%2C119&sr=8-1)
 
-Quiet Time with Cassatt by Julie Merberg
+[A Magical Day with Matisse by Julie Merberg](https://www.amazon.com/Magical-Day-Matisse-Mini-Masters/dp/081183414X/ref=sr_1_1?crid=J9PH5TU3BUIL&keywords=A+Magical+Day+with+Matisse+by+Julie+Merberg&qid=1666140147&sprefix=a+magical+day+with+matisse+by+julie+merberg%2Caps%2C142&sr=8-1)
 
-A Magical Day with Matisse by Julie Merberg
+[In the Garden with Van Gogh by Julie Merberg](https://www.amazon.com/Garden-Van-Gogh-Julie-Merberg/dp/0811834158/ref=sr_1_1?keywords=In+the+Garden+with+Van+Gogh+by+Julie+Merberg&qid=1666140160&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sr=8-1)
 
-In the Garden with Van Gogh by Julie Merberg
+[Dancing with Degas by Julie Merberg](https://www.amazon.com/Dancing-Degas-Julie-Merberg/dp/0811840476/ref=sr_1_1?crid=1ZJRT14EH8RDT&keywords=Dancing+with+Degas+by+Julie+Merberg&qid=1666140176&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=dancing+with+degas+by+julie+merberg%2Caps%2C116&sr=8-1)
 
-Dancing with Degas by Julie Merberg
+
 
 ### Sensory and Flip-the-Flap Books
 
