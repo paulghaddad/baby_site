@@ -23,7 +23,7 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 [Pat the Bunny by Dorothy Kunhardt](https://amzn.to/3EVBawb)
 
-[Goodnight Moon by Margaret Wise Brown](https://amzn.to/3MN8XcZ)
+[Goodnight Moon by Margaret Wise Brown](https://amzn.to/3gqPBOE)
 
 [10 Little Rubber Ducks by Eric Carle](https://amzn.to/3D8Swof)
 
@@ -53,7 +53,7 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 [National Geographic Kids Look and Learn: Baby Animals by National Kids](https://amzn.to/3SeovYf)
 
-### Art
+### Art **and Architecture**
 
 [A Picnic with Monet by Julie Merberg](https://amzn.to/3T9igGB)
 
@@ -62,6 +62,8 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 [In the Garden with Van Gogh by Julie Merberg](https://amzn.to/3VFEWQi)
 
 [Dancing with Degas by Julie Merberg](https://amzn.to/3VBSM6x)
+
+[Baby's First Eames: From Art Deco to Zaha Hadid](https://amzn.to/3EVXs15)
 
 ## **Sensory, Mirror, and Flip-the-Flap Books**
 
