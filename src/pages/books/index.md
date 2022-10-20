@@ -7,7 +7,7 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 ### Nursery Rhymes
 
-[Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit](https://amzn.to/3EZyMoj)
+[Mary Engelbreit's Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit](https://amzn.to/3yTZDOX)
 
 ### Classics and General Good Books
 
@@ -15,7 +15,7 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 [The Runaway Bunny by Margaret Wise Brown](https://amzn.to/3CJLh4N)
 
-[Ten Little Fingers and Ten Little Toes by Mem Fox](https://www.amazon.com/Little-Fingers-Toes-padded-board/dp/0547366205/ref=sr_1_1?crid=1PPOIY4QV6GJQ&keywords=Ten+Little+Fingers+and+Ten+Little+Toes+by+Mem+Fox%27&qid=1666139600&sprefix=ten+little+fingers+and+ten+little+toes+by+mem+fox%2Caps%2C173&sr=8-1)
+[Ten Little Fingers and Ten Little Toes by Mem Fox](https://amzn.to/3Dcetml)
 
 [The Very Hungry Caterpillar by Eric Carle](https://www.amazon.com/Very-Hungry-Caterpillar-Picture-Puffins/dp/0140569324/ref=sr_1_1?crid=A6GEOKCUJPWU&keywords=The+Very+Hungry+Caterpillar+by+Eric+Carle&qid=1666139615&qu=eyJxc2MiOiIxLjgxIiwicXNhIjoiMS41MiIsInFzcCI6IjEuNDMifQ%3D%3D&sprefix=the+very+hungry+caterpillar+by+eric+carle%2Caps%2C102&sr=8-1)
 
