@@ -7,13 +7,13 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 ### Nursery Rhymes
 
-[Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit](https://www.amazon.com/Mary-Engelbreits-Mother-Goose-Best-Loved/dp/0060081716)
+[Mother Goose: One Hundred Best-Loved Verses by Mary Engelbreit](https://amzn.to/3EZyMoj)
 
 ### Classics and General Good Books
 
-[Ten Little Babies by Gyo Fujikawa](https://www.amazon.com/Ten-Little-Babies-Gyo-Fujikawa/dp/140275700X/ref=sr_1_1?crid=47U3416ZYUOM&keywords=Ten+Little+Babies+by+Gyo+Fujikawa&qid=1666139565&sprefix=ten+little+babies+by+gyo+fujikawa%2Caps%2C120&sr=8-1)
+[Ten Little Babies by Gyo Fujikawa](https://amzn.to/3eILn4F)
 
-[The Runaway Bunny by Margaret Wise Brown](https://www.amazon.com/Runaway-Bunny-Margaret-Wise-Brown/dp/0061074292/ref=sr_1_1?crid=1EABEXXU28R67&keywords=The+Runaway+Bunny+by+Margaret+Wise+Brown&qid=1666139582&qu=eyJxc2MiOiIyLjQ2IiwicXNhIjoiMi4yOCIsInFzcCI6IjIuMDAifQ%3D%3D&sprefix=the+runaway+bunny+by+margaret+wise+brown%2Caps%2C124&sr=8-1)
+[The Runaway Bunny by Margaret Wise Brown](https://amzn.to/3CJLh4N)
 
 [Ten Little Fingers and Ten Little Toes by Mem Fox](https://www.amazon.com/Little-Fingers-Toes-padded-board/dp/0547366205/ref=sr_1_1?crid=1PPOIY4QV6GJQ&keywords=Ten+Little+Fingers+and+Ten+Little+Toes+by+Mem+Fox%27&qid=1666139600&sprefix=ten+little+fingers+and+ten+little+toes+by+mem+fox%2Caps%2C173&sr=8-1)
 
@@ -80,8 +80,6 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 [Dear Zoo by ​​Rod Campbell](https://www.amazon.com/Dear-Zoo-Lift-Flap-Book/dp/141694737X/ref=sr_1_1?keywords=dear+zoo+a+lift-the-flap+book+board+book&qid=1666187746&qu=eyJxc2MiOiIxLjMzIiwicXNhIjoiMS4xMSIsInFzcCI6IjEuMDAifQ%3D%3D&s=books&sprefix=dear+zoo%2Cstripbooks%2C109&sr=1-1)
 
 [Oh Dear! by ​​Rod Campbell](https://www.amazon.com/Oh-Dear-Lift-Flap-Friends/dp/1534443193/ref=sr_1_1?crid=VXX32K4FB619&keywords=Oh+Dear%21&qid=1666187792&qu=eyJxc2MiOiIwLjY1IiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&s=books&sprefix=oh+dear+%2Cstripbooks%2C117&sr=1-1)
-
-
 
 ### Nature and Things in Our World
 
