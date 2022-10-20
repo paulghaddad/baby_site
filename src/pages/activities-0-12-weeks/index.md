@@ -23,11 +23,11 @@ This activity is especially fun now that he’s older and much more talkative; h
 
 #### **Suggested Items**:
 
-[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+[Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) 
 
-[Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+[Baby Animals 2022 Box Calendar ](https://amzn.to/3EWUPMi)
 
-[N﻿ational Parks 2022 Box Calendar](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
+[N﻿ational Parks 2022 Box Calendar](https://amzn.to/3EYu5Lr)
 
 ## 2. Customize your play gym
 
@@ -51,7 +51,7 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
-[beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[beiens High Contrast Baby Flashcards](https://amzn.to/3TlSWxh) 
 
 [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
 
@@ -59,7 +59,7 @@ I took objects -- rattles and teethers -- and attached them to the play gym with
 
 [Organic Teething Ring - Bear](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/senger-organic-teething-ring-animal-baby-bear)
 
-[Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[Ribbli Double Faced Red Satin Ribbon](https://amzn.to/3VO2HWr)
 
 ## 3. The many uses of mobiles
 
@@ -131,21 +131,21 @@ But I soon found it more comfortable to lay on our backs, side-by-side on his pl
 
 #### **Suggested books:**
 
-[Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.](https://www.amazon.com/Panda-Bear-What-Board-Book/dp/0805080783/ref=sr_1_1?crid=3M00FWYTW56PZ&keywords=Panda+Bear%2C+Panda+Bear+What+Do+You+See%3F+by+Bill+Martin+Jr.&qid=1666139760&sprefix=panda+bear%2C+panda+bear+what+do+you+see+by+bill+martin+jr.%2Caps%2C125&sr=8-1)
+[Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.](https://amzn.to/3yV4eAb)
 
-[Polar Bear, Polar Bear, What Do You Hear? by Bill Martin Jr.](https://www.amazon.com/Polar-Bear-What-Brown-Friends/dp/0805053883/ref=sr_1_1?crid=1V2H8HVB44FJY&keywords=Polar+Bear%2C+Polar+Bear%2C+What+Do+You+Hear%3F+by+Bill+Martin+Jr.&qid=1666139776&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=polar+bear%2C+polar+bear%2C+what+do+you+hear+by+bill+martin+jr.%2Caps%2C82&sr=8-1)
+[Polar Bear, Polar Bear, What Do You Hear? by Bill Martin Jr.](https://amzn.to/3SlpZzX)
 
-[Brown Bear, Brown Bear, What Do You See? by Bill Martin Jr. ](https://www.amazon.com/Brown-Bear-What-You-See/dp/0805047905/ref=sr_1_1?crid=1VGBWE4LCOBVS&keywords=Brown+Bear%2C+Brown+Bear%2C+What+Do+You+See%3F+by+Bill+Martin+Jr.&qid=1666139791&qu=eyJxc2MiOiIwLjAwIiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=brown+bear%2C+brown+bear%2C+what+do+you+see+by+bill+martin+jr.%2Caps%2C87&sr=8-1)[](https://www.amazon.com/I-Love-You-Moon-Back/dp/1589255518/ref=sr_1_1?crid=G3F5KAWSHTRM&keywords=I+Love+You+to+the+Moon+and+Back+by+Amelia+Hepworth&qid=1666139630&qu=eyJxc2MiOiIwLjMyIiwicXNhIjoiMC4xOCIsInFzcCI6IjAuMjgifQ%3D%3D&sprefix=i+love+you+to+the+moon+and+back+by+amelia+hepworth%2Caps%2C134&sr=8-1)
+[Brown Bear, Brown Bear, What Do You See? by Bill Martin Jr. ](https://amzn.to/3CMxp9R)[](https://www.amazon.com/I-Love-You-Moon-Back/dp/1589255518/ref=sr_1_1?crid=G3F5KAWSHTRM&keywords=I+Love+You+to+the+Moon+and+Back+by+Amelia+Hepworth&qid=1666139630&qu=eyJxc2MiOiIwLjMyIiwicXNhIjoiMC4xOCIsInFzcCI6IjAuMjgifQ%3D%3D&sprefix=i+love+you+to+the+moon+and+back+by+amelia+hepworth%2Caps%2C134&sr=8-1)
 
-[I Love You to the Moon and Back by Amelia Hepworth](https://www.amazon.com/I-Love-You-Moon-Back/dp/1589255518/ref=sr_1_1?crid=G3F5KAWSHTRM&keywords=I+Love+You+to+the+Moon+and+Back+by+Amelia+Hepworth&qid=1666139630&qu=eyJxc2MiOiIwLjMyIiwicXNhIjoiMC4xOCIsInFzcCI6IjAuMjgifQ%3D%3D&sprefix=i+love+you+to+the+moon+and+back+by+amelia+hepworth%2Caps%2C134&sr=8-1)
+[I Love You to the Moon and Back by Amelia Hepworth](https://amzn.to/3D9mQPC)
 
-[Goodnight Moon by Margaret Wise Brown](https://www.amazon.com/Goodnight-Moon-Margaret-Wise-Brown/dp/0694003611/ref=sr_1_1?crid=1LNAUGX9ESD2C&keywords=Goodnight+Moon+by+Margaret+Wise+Brown&qid=1666139673&qu=eyJxc2MiOiIyLjM4IiwicXNhIjoiMi4zNCIsInFzcCI6IjEuODQifQ%3D%3D&sprefix=goodnight+moon+by+margaret+wise+brown%2Caps%2C129&sr=8-1)
+[Goodnight Moon by Margaret Wise Brown](https://amzn.to/3gqPBOE)
 
-[National Geographic Kids Little Kids First Board Book: Animals On the Go by Ruth Musgrave ](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426333129/ref=sr_1_1?crid=33IP1SZM64SD6&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Animals+On+the+Go+by+Ruth+Musgrave&qid=1666139841&sprefix=national+geographic+kids+little+kids+first+board+book+animals+on+the+go+by+ruth+musgrave%2Caps%2C126&sr=8-1)
+[National Geographic Kids Little Kids First Board Book: Animals On the Go by Ruth Musgrave ](https://amzn.to/3DdpVhJ)
 
-[National Geographic Kids Little Kids First Board Book: Ocean by National Kids](https://www.amazon.com/National-Geographic-Little-First-Board/dp/1426334680/ref=sr_1_1?crid=U5VIMT03FY1F&keywords=National+Geographic+Kids+Little+Kids+First+Board+Book%3A+Ocean+by+National+Kids&qid=1666139861&sprefix=national+geographic+kids+little+kids+first+board+book+ocean+by+national+kids%2Caps%2C119&sr=8-1)
+[National Geographic Kids Little Kids First Board Book: Ocean by National Kids](https://amzn.to/3ESXOpd)
 
-[National Geographic Kids Look and Learn: Baby Animals by National Kids](https://www.amazon.com/National-Geographic-Kids-Look-Learn/dp/1426314825/ref=sr_1_1?crid=MGM9XI7LL5UN&keywords=National+Geographic+Kids+Look+and+Learn%3A+Baby+Animals+by+National+Kids&qid=1666139875&sprefix=national+geographic+kids+look+and+learn+baby+animals+by+national+kids%2Caps%2C118&sr=8-1)
+[National Geographic Kids Look and Learn: Baby Animals by National Kids](https://amzn.to/3SeovYf)
 
 ## 7. Let the music play
 
@@ -175,7 +175,7 @@ Other times, I’d point out different parts of his face: nose, ears, chin, etc.
 
 Besides, babies love to look at themselves in the mirror -- so it’s definitely a worthy purchase.
 
-**Baby can also study faces by looking at pictures of babies**. Books about babies, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), worked great for this activity. 
+**Baby can also study faces by looking at pictures of babies**. Books about babies, like [Baby Faces](https://amzn.to/3eL0jz6) and [Global Babies](https://amzn.to/3Dgu1oY), worked great for this activity. 
 
 These books also work great during tummy time. Prop open a book and lay it against a wall, so baby has something interesting to look at while on his tummy.
 
@@ -183,9 +183,9 @@ These books also work great during tummy time. Prop open a book and lay it again
 
 Mirror
 
-[Baby Faces by Jim Harbison](https://www.amazon.com/Baby-Faces-Little-Grasshopper-Books/dp/1645586308/ref=sr_1_1?crid=VH10VVJLKX3Q&keywords=Baby+Faces+by+Jim+Harbison&qid=1666188675&sprefix=baby+faces+by+jim+harbison%2Caps%2C408&sr=8-1)
+[Baby Faces by Jim Harbison](https://amzn.to/3DcuzfE)
 
-[Global Babies by The Global Fund for Children](https://www.amazon.com/Global-Babies-Fund-Children/dp/1580891748/ref=sr_1_1?crid=1NK2QBDGEPXTX&keywords=Global+Babies+by+The+Global+Fund+for+Children&qid=1666188695&qu=eyJxc2MiOiIwLjU4IiwicXNhIjoiMC40NSIsInFzcCI6IjAuNDcifQ%3D%3D&sprefix=global+babies+by+the+global+fund+for+children%2Caps%2C92&sr=8-1)
+[Global Babies by The Global Fund for Children](https://amzn.to/3Dgu1oY)
 
 ## 9. The great outdoors
 
@@ -227,7 +227,7 @@ To keep your baby on their side, you may find it useful to roll up a small towel
 
 #### **Suggested Item:**
 
-[beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[beiens High Contrast Baby Flashcards](https://amzn.to/3TlSWxh) 
 
 ## 11. Make tummy time fun!
 
@@ -239,7 +239,7 @@ While baby is on his tummy on his playmat: 
 
 * **Prop up some black and white cards** against the wall for baby to look at. 
 * **Lean a mirror against the wall** so baby can look at himself.  
-* **Prop a board book against the wall**, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) or [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), while Hayden was on his tummy.
+* **Prop a board book against the wall, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like Baby Faces  Global Babies﻿﻿ Global Babies, while Hayden was on his tummy.**
 * **Use a mobile during tummy time**. Hayden loved this! It offered a new perspective and motivated him to lift that heavy head!
 
 I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)) or artwork ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
