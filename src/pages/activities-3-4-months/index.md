@@ -11,7 +11,7 @@ title: "Play to Learn "
 
 After I fed Hayden in the morning, he’d join me at the kitchen table where I’d have my breakfast. “Breakfast with mommy,” as I later called it, turned into a fun daily ritual with a lot of benefits. 
 
-Hayden would sit in his [BabyBjörn bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=), which was placed near the kitchen table, as I showed -- **and involved** -- him in the breakfast preparation.
+Hayden would sit in his [](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)[BabyBjörn Bouncer](https://amzn.to/3EYsoxz), which was placed near the kitchen table, as I showed -- **and involved** -- him in the breakfast preparation.
 
 I’d open the bag of frozen blueberries and bring them over to him to let him take a look.  
 
@@ -45,13 +45,13 @@ At first, Haden would only last a few minutes in his bouncer. He was anxious to 
 
 **Make grasping objects fun for baby**.
 
-I took some of Hayden's favorite rattles and teethers and hung them from his play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). That way, they were low enough so he could grab them with his hands and put them in his mouth. 
+I took some of Hayden's favorite rattles and teethers and hung them from his play gym with [red ribbon](https://amzn.to/3TCSEBJ). That way, they were low enough so he could grab them with his hands and put them in his mouth. 
 
 This setup was also a great way to get him using his feet. 
 
 The objects were low enough for him to kick, which he loved to do! I liked the [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker) for this reason. It was a wide enough target for baby.
 
-**Also consider handing baby an object to explore while he sits in a [baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)**. This gives him a different angle to grab objects.
+**Also consider handing baby an object to explore while he sits in a [baby bouncer](https://amzn.to/3TllWoD)**. This gives him a different angle to grab objects.
 
 #### **Suggested Items**:
 
@@ -87,13 +87,13 @@ Get baby on his tummy, then dangle the mobile in front of him or to the side. Ha
 
 Use props to make tummy time fun!
 
-**Babies love looking at other babies**. That’s why I’d open up a board book about baby faces, like [](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)[Baby Faces](https://amzn.to/3eL0jz6) and [Global Babies](https://amzn.to/3Dgu1oY), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
+**Babies love looking at other babies**. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://amzn.to/3eL0jz6) and [Global Babies](https://amzn.to/3Dgu1oY), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
 
 ![Tummy time with mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
 **Mirrors are also a lot of fun for babies**. They love to look at themselves! So place baby on his tummy and prop up a mirror in front of him. 
 
-I also found it useful to **prop up pictures of artwork or baby animals** for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) and [Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)). I’d select a few pictures and place them in front of him, which he absolutely loved.
+I also found it useful to **prop up pictures of artwork or baby animals** for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) and [](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)[Baby Animals 2022 Box Calendar](https://amzn.to/3EWUPMi)). I’d select a few pictures and place them in front of him, which he absolutely loved.
 
 **Mobiles were another favorite** tummy time item. 
 
