@@ -239,10 +239,10 @@ While baby is on his tummy on his playmat: 
 
 * **Prop up some black and white cards** against the wall for baby to look at. 
 * **Lean a mirror against the wall** so baby can look at himself.  
-* **Prop a board book against the wall, and let baby look at the images. Babies love looking at other babies. So I’d open up books, like Baby Faces  Global Babies﻿﻿ Global Babies, while Hayden was on his tummy.**
+* **Prop a board book against the wall, and let baby look at the images.** Babies love looking at other babies. So I’d open up books, [Baby Faces](https://amzn.to/3eL0jz6) or [Global Babies](https://amzn.to/3Dgu1oY), while Hayden was on his tummy.
 * **Use a mobile during tummy time**. Hayden loved this! It offered a new perspective and motivated him to lift that heavy head!
 
-I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)) or artwork ([Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
+I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://amzn.to/3EWUPMi)) or artwork ([Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) [](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
 
 Tummy time can be really hard for baby. 
 
@@ -256,12 +256,12 @@ Or sit at an incline and rest baby on your chest. I found this way to be very ef
 
 #### **Suggested Items:**
 
-[beiens High Contrast Baby Flashcards](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) 
+[beiens High Contrast Baby Flashcards](https://amzn.to/3TlSWxh) 
 
-[Baby Faces by Jim Harbison](https://www.amazon.com/Baby-Faces-Little-Grasshopper-Books/dp/1645586308/ref=sr_1_1?crid=VH10VVJLKX3Q&keywords=Baby+Faces+by+Jim+Harbison&qid=1666188675&sprefix=baby+faces+by+jim+harbison%2Caps%2C408&sr=8-1)
+[Baby Faces by Jim Harbison](https://amzn.to/3DcuzfE)
 
-[Global Babies by The Global Fund for Children](https://www.amazon.com/Global-Babies-Fund-Children/dp/1580891748/ref=sr_1_1?crid=1NK2QBDGEPXTX&keywords=Global+Babies+by+The+Global+Fund+for+Children&qid=1666188695&qu=eyJxc2MiOiIwLjU4IiwicXNhIjoiMC40NSIsInFzcCI6IjAuNDcifQ%3D%3D&sprefix=global+babies+by+the+global+fund+for+children%2Caps%2C92&sr=8-1)
+[Global Babies by The Global Fund for Children](https://amzn.to/3Dgu1oY)
 
-[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+[Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) 
 
-[Baby Animals 2022 Box Calendar](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+[Baby Animals 2022 Box Calendar ](https://amzn.to/3EWUPMi)
