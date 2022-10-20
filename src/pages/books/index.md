@@ -11,7 +11,7 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 ### Classics and General Good Books
 
-[Ten Little Babies by Gyo Fujikawa](https://amzn.to/3eILn4F)
+[Ten Little Babies by Gyo Fujikawa](https://amzn.to/3s78kSb)
 
 [The Runaway Bunny by Margaret Wise Brown](https://amzn.to/3CJLh4N)
 
