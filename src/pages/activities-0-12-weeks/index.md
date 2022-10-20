@@ -242,7 +242,7 @@ While baby is on his tummy on his playmat: 
 * **Prop a board book against the wall, and let baby look at the images.** Babies love looking at other babies. So I’d open up books, [Baby Faces](https://amzn.to/3eL0jz6) or [Global Babies](https://amzn.to/3Dgu1oY), while Hayden was on his tummy.
 * **Use a mobile during tummy time**. Hayden loved this! It offered a new perspective and motivated him to lift that heavy head!
 
-I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://amzn.to/3EWUPMi)) or artwork ([Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) [](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
+I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://amzn.to/3EWUPMi)) or artwork ([Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u)[](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
 
 Tummy time can be really hard for baby. 
 
