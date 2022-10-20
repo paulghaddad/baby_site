@@ -81,19 +81,19 @@ I’ll say “can you please help me turn the page?” He’ll extend his arm, g
 
 #### **Suggested books**:
 
-Where’s Spot? by Eric Hill
+[See, Touch, Feel: A First Sensory Book by Roger Priddy](https://amzn.to/3VFZGHN)
 
-Dear Zoo by by Rod Campbell
+[See, Touch, Feel: ABC by Roger Priddy](https://amzn.to/3DbDdLm)
 
-Farm by Tiger Tales
+[Farm by Tiger Tales](https://amzn.to/3s7ulAc)
 
-See, Touch, Feel: A First Sensory Book by by Roger Priddy
+[You’re My Little Baby by Eric Carle](https://amzn.to/3D9wBNM)
 
-See, Touch, Feel: ABC by Roger Priddy
+[Where’s Spot? by Eric Hill](https://amzn.to/3CLMtVa)
 
-You’re My Little Baby by Eric Carle
+[Dear Zoo by ​​Rod Campbell](https://amzn.to/3gbpBGW)
 
-
+[Oh Dear! by ​​Rod Campbell](https://amzn.to/3VGA7X6)
 
 ## **5.** Hide and seek
 
@@ -253,7 +253,7 @@ Needless to say, we both got our exercise! 
 
 #### **Suggested item**:
 
-**[Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r)** by HABA
+[Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r) by HABA
 
 ## **12.** It’s time for a trip!
 
@@ -277,11 +277,13 @@ Have a checklist that contains all of the things you need to bring for baby. It'
 
 To warm Hayden up to the idea of traveling, I purchased a few travel-related books for him in advance of the trip and read them to him. Here are a few of my favorites:
 
-Time for a Trip by by Phillis Gershator
+[Time for a Trip by by Phillis Gershator](https://amzn.to/3MOmPny)
 
-All Aboard Pacific Northwest by by Haily Meyers 
+[All Aboard Pacific Northwest: A Recreation Primer by Haily Meyers ](https://amzn.to/3MKa5ho)
 
-B is for Bison by by Greg Paprocki
+[All Aboard! National Parks: A Wildlife Primer by Haily Meyers](https://amzn.to/3eJ2u6e)
+
+[B is for Bison by by Greg Paprocki](https://amzn.to/3CPzhPd)
 
 ## **13.** Water art
 
@@ -295,45 +297,47 @@ Put baby in his high chair, or sit with baby on the floor. Help him dip his fing
 
 Then, let him touch or grab the paper. 
 
-It’s fun to make hand prints, too. You can also use [large art brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) to make water marks.
+It’s fun to make hand prints, too. You can also use [large art brushes](https://amzn.to/3CNmj4t) to make water marks.
 
 #### Suggested Items:
 
-[Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[Paper bowls](https://amzn.to/3VHUy62)
 
-[Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[Crayola Construction Paper](https://amzn.to/3CQgJ19)
 
-[Jumbo Children's Tempera Artist Paint Brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
+[Jumbo Children's Tempera Artist Paint Brushes](https://amzn.to/3CNmj4t)
 
 ## **14. F﻿inger painting (with taste safe paint)**
 
 ![Finger painting](/img/img_9233.jpeg)
 
-I like [this simple recipe](https://rainydaymum.co.uk/baby-play-finger-painting/) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5).
+I like [this simple recipe](https://rainydaymum.co.uk/baby-play-finger-painting/) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://amzn.to/3sfeKys).
 
 Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
 
-B﻿aby can dip his fingers or hands into the paint. Or you can introduce a [paint brush](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1). 
+B﻿aby can dip his fingers or hands into the paint. Or you can introduce a [paint brush](https://amzn.to/3CNmj4t). 
 
 As fun as it is for baby to decorate the paper with paint, it’s equally enjoyable for him to squish the paint in his hands. It’s definitely a sensorial experience!
 
 **You can also put some paint into a Ziplock bag and have baby squish the paint that’s in the bag**. It’s another sensorial experience!
 
-To keep things relatively clean, put baby in a [mess-proof bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1).
+To keep things relatively clean, put baby in a [mess-proof bib](https://amzn.to/3F2MzKP).
 
 #### **Suggested Items**:
 
-[Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[Paper bowls](https://amzn.to/3VHUy62)
 
-[Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[Crayola Construction Paper](https://amzn.to/3CQgJ19)
 
-[365 by Whole Foods Market, Food Coloring (plant-based)](https://www.amazon.com/365-Everyday-Value-Food-Coloring/dp/B07G2Z6CLG/ref=sr_1_5?crid=29JX5XNW7TPH7&keywords=whole+foods+natural+food+coloring&qid=1663079648&sprefix=whole+foods+natural+food+coloring%2Caps%2C110&sr=8-5)
+[Jumbo Children's Tempera Artist Paint Brushes](https://amzn.to/3CNmj4t)
 
-[Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[365 by Whole Foods Market, Food Coloring (plant-based)](https://amzn.to/3sfeKys)
 
-[Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
+[Tiny Twinkle Mess Proof Baby Bib](https://amzn.to/3F2MzKP)
 
-[Jumbo Children's Tempera Artist Paint Brushes](https://www.amazon.com/gp/product/B01M5GF3DZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
+[Ziplock freezer bags](https://amzn.to/3SdIfLT)
+
+
 
 ## **15. Abstract art**
 
@@ -343,19 +347,21 @@ Release baby’s inner Jackson Pollock with this fun abstract art activity. 
 
 ![](/img/img_9280.jpeg)
 
-Place a few [drops of paint](https://www.amazon.com/gp/product/B00004UBH2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) on a piece of paper. [Construction paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) is ideal for to help prevent the paint from leaking through. 
+Place a few [drops of paint](https://amzn.to/3CNsiWZ) on a piece of paper. [Construction paper](https://amzn.to/3CQgJ19) is ideal for to help prevent the paint from leaking through. 
 
-Place the paper with paint into the [Ziplock freezer bag](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5) and close the bag. You can use tape to secure the bag to the table, if you wish.
+Place the paper with paint into the [Ziplock freezer bag](https://amzn.to/3SdIfLT) and close the bag. You can use tape to secure the bag to the table, if you wish.
 
 Now baby can run their fingers over the drops of paint and squish the paint drops with their hands -- without any mess! 
 
 **Suggested Items**:
 
-* [Paper bowls](https://www.amazon.com/gp/product/B07X5265HW/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [Crayola Construction Paper](https://www.amazon.com/gp/product/B00MJ8JSFE/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [Crayola Washable Kids Paint](https://www.amazon.com/gp/product/B00004UBH2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [Tiny Twinkle Mess Proof Baby Bib](https://www.amazon.com/gp/product/B09N4T7KRD/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-* [Ziplock freezer bags](https://www.amazon.com/Ziploc-Freezer-Bags-Gallon-Count/dp/B00CQAHOCO/ref=sr_1_5?keywords=ziploc+freezer+bags&qid=1663080421&sr=8-5)
+[Crayola Washable Kids Paint](https://amzn.to/3CNsiWZ)
+
+[Paper bowls](https://amzn.to/3VHUy62)
+
+[Crayola Construction Paper](https://amzn.to/3CQgJ19)
+
+[Ziplock freezer bags](https://amzn.to/3SdIfLT)
 
 ## **16.** Sensory boxes: touch, feel, pull
 
@@ -409,7 +415,7 @@ Take this sensory activity a step further by slicing and orange, lemon, or lime 
 
 #### **Suggested Items**:
 
-[Colander](https://www.amazon.com/Colander-Pro-Stainless-Steel-5-Quart/dp/B0182PE91A/ref=sr_1_1_sspa?keywords=colander&qid=1664894074&qu=eyJxc2MiOiI2LjkyIiwicXNhIjoiNi40NSIsInFzcCI6IjYuMDkifQ%3D%3D&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVEFLQVVSWEtKQjBNJmVuY3J5cHRlZElkPUEwMjM2NjI3MkU1Sjg1MzExQVlaNCZlbmNyeXB0ZWRBZElkPUEwODEyNjc3M0Y4R01QSVJLQzRHViZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+Colander
 
 A﻿ variety of fruits and veggies
 
