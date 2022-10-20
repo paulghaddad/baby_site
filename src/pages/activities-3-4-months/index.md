@@ -37,7 +37,7 @@ At first, Haden would only last a few minutes in his bouncer. He was anxious to 
 
 #### Suggested Item:
 
-[Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+[BabyBjörn Bouncer](https://amzn.to/3EYsoxz)
 
 ## 2. Grab or kick it 
 
@@ -57,9 +57,9 @@ The objects were low enough for him to kick, which he loved to do! I liked the [
 
 [Play Gym](https://lovevery.com/products/the-play-gym) by Lovevery
 
-[Baby bouncer](https://www.amazon.com/BABYBJORN-Bouncer-Balance-Soft-Cotton/dp/B00BQYVOKY/ref=sr_1_1_sspa?crid=2NUUQWVU6ML1B&keywords=bjorn+baby+bouncer&qid=1663166078&s=home-garden&sprefix=bajorn+baby+bouncer%2Cgarden%2C85&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyTk4xQ1ZZRExQRUw5JmVuY3J5cHRlZElkPUEwMzY3NjU2MUg2TzZNVUFBMUxXMCZlbmNyeXB0ZWRBZElkPUEwMTA3MzE4MVNSMUszTVI1SUNGTyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+[BabyBjörn Bouncer](https://amzn.to/3EYsoxz)
 
-[Ribbli Double Faced Red Satin Ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+[Ribbli Double Faced Red Satin Ribbon](https://amzn.to/3eM2JgT)
 
 [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
 
@@ -87,7 +87,7 @@ Get baby on his tummy, then dangle the mobile in front of him or to the side. Ha
 
 Use props to make tummy time fun!
 
-**Babies love looking at other babies**. That’s why I’d open up a board book about baby faces, like [Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) and [Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
+**Babies love looking at other babies**. That’s why I’d open up a board book about baby faces, like [](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)[Baby Faces](https://amzn.to/3eL0jz6) and [Global Babies](https://amzn.to/3Dgu1oY), and propped it up in front of Hayden. He loved this! I’d turn the pages periodically to keep things interesting.
 
 ![Tummy time with mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
@@ -105,13 +105,13 @@ And you can **always put an enticing toy in front of baby** while he’s on his 
 
 #### **Suggested items**:
 
-[Baby Faces](https://www.amazon.com/gp/product/1645586308/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+[Baby Faces by Jim Harbison](https://amzn.to/3DcuzfE)
 
-[Global Babies](https://www.amazon.com/gp/product/1580891748/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) (board book)
+[Global Babies by The Global Fund for Children](https://amzn.to/3Dgu1oY)
 
-[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+[Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) 
 
-[Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+[Baby Animals 2022 Box Calendar ](https://amzn.to/3EWUPMi)
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
@@ -131,11 +131,11 @@ Other times, I’d place an object to the side or in front of him and he’d pra
 
 #### **Suggested books**:
 
-See, Touch, Feel: A First Sensory Book by Roger Priddy
+[See, Touch, Feel: A First Sensory Book by Roger Priddy](https://amzn.to/3VFZGHN)
 
-See, Touch, Feel: ABC by Roger Priddy
+[See, Touch, Feel: ABC by Roger Priddy](https://amzn.to/3DbDdLm)
 
-Farm (My First)  by Tiger Tales
+[Farm by Tiger Tales](https://amzn.to/3s7ulAc)
 
 ## 6. Chef baby
 
@@ -187,11 +187,11 @@ I’d point out parts of our faces: “mommy’s nose”; “Hayden’s nose.”
 
 Bubbles are such a thrill for baby!  
 
-Since they’re such a hit, I keep bubbles easily accessible: in the car, stroller, garage, and back porch. I like [Bubble Tree’s bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1) because they come in a pack of four, are non-toxic, and the bubble solution is in an aluminum bottle.
+Since they’re such a hit, I keep bubbles easily accessible: in the car, stroller, garage, and back porch. I like [Bubble Tree’s bubbles](https://amzn.to/3TlkWRp) because they come in a pack of four, are non-toxic, and the bubble solution is in an aluminum bottle.
 
 #### **Suggested item**:
 
-[Bubbles](https://www.amazon.com/gp/product/B08CMM2YYZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1)
+[Bubble Tree’s bubbles](https://amzn.to/3TlkWRp)
 
 ## 9. Get those hands moving
 
@@ -217,9 +217,9 @@ Expose your baby to our beautiful world! 
 
 I purchased a few calendars of artwork, baby animals, and beautiful places:
 
-* [Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
-* [National Parks 2022 Box Calendar ](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
-* [Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+* [Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) 
+* [Baby Animals 2022 Box Calendar ](https://amzn.to/3EWUPMi)
+* [N﻿ational Parks 2022 Box Calendar](https://amzn.to/3EYu5Lr)
 
 Then, I’d tear off a few pages from a calendar, lay on my back next to Hayden, and we’d look at some beautiful places, animals, and artwork and “talk”about them. 
 
@@ -229,11 +229,11 @@ We’ve been doing this for months and love it! It’s especially fun now that h
 
 #### Suggested Items:
 
-[Art Page-A-Day Gallery Calendar](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2) 
+[Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) 
 
-[National Parks 2022 Box Calendar ](https://www.amazon.com/National-Parks-Calendar-Daily-Desktop/dp/1549221183/ref=sr_1_3?crid=3LNZYRSIY2HBK&keywords=National+Parks+2022+Box+Calendar&qid=1662978888&sprefix=national+parks+2022+box+calendar+%2Caps%2C152&sr=8-3)
+[Baby Animals 2022 Box Calendar ](https://amzn.to/3EWUPMi)
 
-[Baby Animals 2022 Box Calendar ](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)
+[N﻿ational Parks 2022 Box Calendar](https://amzn.to/3EYu5Lr)
 
 ## 11. **Fun with books**
 
@@ -247,17 +247,13 @@ Outside of sensory books, we did lots of reading while laying on our backs, side
 
 #### **Suggested books**:
 
-Farm by Tiger Tales
+[Farm by Tiger Tales](https://amzn.to/3s7ulAc)
 
-Big Red Barn by Margaret Wise Brown
+[Big Red Barn by Margaret Wise Brown](https://amzn.to/3CLLV1y)
 
-A Picnic with Monet by Julie Merberg
+[A Picnic with Monet by Julie Merberg](https://amzn.to/3T9igGB)
 
-In the Garden with Van Gogh by Julie Merberg
-
-In the Garden with Van Gogh by Julie Merberg
-
-My First I See You: A Mirror Book by Eric Carle
+[My First I See You: A Mirror Book by Eric Carle](https://amzn.to/3DcUaoO)
 
 ## 12. It’s laundry time
 
