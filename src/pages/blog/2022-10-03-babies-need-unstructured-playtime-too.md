@@ -7,6 +7,8 @@ description: “Kids need more unstructured play.” I’ve heard and read this 
 featuredpost: false
 featuredimage: /img/img_9300.jpeg
 ---
+“Kids need more unstructured play.” I’ve heard and read this claim dozens of times, and I happen to agree.
+
 But this need isn’t just relevant to school-aged kids. It’s also relevant to babies. Babies need unstructured playtime, too!
 
 Let baby take the lead without intervening with a new stimulus -- a book or toy -- or parental instruction. Instead, give baby an opportunity to discover, learn, and make connections on his own; you sit back and observe.
