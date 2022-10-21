@@ -8,6 +8,8 @@ featuredimage: /img/img_9183.jpeg
 tags:
   - food
 ---
+One of my biggest fears as a parent was raising a picky eater.
+
 M﻿y husband and I are adventurous eaters and enjoy good, fresh food. When Hayden began solids, I wanted him to eat a variety of foods and appreciate a good meal.
 
 How does a mama help make that happen?!
