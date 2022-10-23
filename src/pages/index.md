@@ -47,7 +47,7 @@ intro:
         *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
     - image: /img/img_9320.jpeg
-      header: 6 months+
+      header: 7 months+
       text: More activities for older babies coming soon!
   heading: Activities for ages 0-6 months (activities for more age groups coming soon!)
   description: Activities, books, and toys for babies
