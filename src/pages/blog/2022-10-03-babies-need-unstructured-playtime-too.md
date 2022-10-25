@@ -2,8 +2,7 @@
 templateKey: blog-post
 title: Babies Need Unstructured Playtime, Too!
 date: 2022-09-26T19:02:43.360Z
-description: “Kids need more unstructured play.” I’ve heard and read this claim
-  dozens of times, and I happen to agree.
+description: Babies need unstructured play during playtime.
 featuredpost: false
 featuredimage: /img/img_9300.jpeg
 ---
