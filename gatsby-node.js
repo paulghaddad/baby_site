@@ -1,9 +1,6 @@
 const _ = require('lodash')
 const path = require('path')
 const { createFilePath } = require('gatsby-source-filesystem')
-const mixpanel = require('mixpanel-browser');
-
-mixpanel.init('855b3835807b45c3f8f90bace0145b56', {debug: false});
 
 exports.createPages = ({ actions, graphql }) => {
   const { createPage } = actions

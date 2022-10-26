@@ -45,6 +45,14 @@ const TemplateWrapper = ({ children }) => {
           content={`${withPrefix("/")}img/og-image.jpg`}
         />
         <script async type="text/javascript" src="https://static.klaviyo.com/onsite/js/klaviyo.js?company_id=VDwCJ5"></script>
+        <script async src="https://www.googletagmanager.com/gtag/js?id=G-HRZGWZB4KQ"></script>
+        <script>
+          window.dataLayer = window.dataLayer || [];
+          function gtag(){dataLayer.push(arguments);}
+          gtag('js', new Date());
+
+          gtag('config', 'G-HRZGWZB4KQ');
+        </script>
       </Helmet>
       <Navbar />
       <div>{children}</div>
