@@ -17,6 +17,9 @@ export const Activities012PageTemplate = ({ title, content, contentComponent }) 
               <h2 className="title is-size-3 has-text-weight-bold is-bold-light">
                 {title}
               </h2>
+              <div className="pinterest">
+                <a data-pin-do="buttonBookmark"  href="https://www.pinterest.com/pin/create/button/"></a>
+              </div>
               <PageContent className="content" content={content} />
             </div>
           </div>

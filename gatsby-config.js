@@ -43,8 +43,8 @@ module.exports = {
       resolve: "gatsby-transformer-remark",
       options: {
         plugins: [
-          'gatsby-remark-heading-slug',
-          'gatsby-remark-relative-images',
+          "gatsby-remark-heading-slug",
+          "gatsby-remark-relative-images",
           {
             resolve: "gatsby-remark-images",
             options: {
