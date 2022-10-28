@@ -217,11 +217,16 @@ Measuring cups
 
 ## 11. Warm vs cold: ice cubes in warm water 
 
+![activities for babies - ice cubes in warm water](/img/activities-for-babies-ice-cubes.jpeg)
+
 Help baby learn about warm versus cold with this simple activity.\
 \
 Start with two small containers or bowls. Fill one with warm water. Fill the other with ice cubes. I made my own ice cubes by freezing water in a baby [ice cube tray](https://amzn.to/3DEMgoE) that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
 
-Let baby touch the contents in each container.\
+Let baby touch the contents in each container.
+
+![activities for babies - holding ice cubes](/img/activities-for-babies-ice-cubes-2.jpeg)
+
 \
 Then, help baby pick up an ice cube and plop it into the warm water. Have him touch the dissolving ice cube, and feel the changing temperature of the water.
 
@@ -235,15 +240,21 @@ Ice cubes
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-## 12. Let’s make a cake!
+## 12. **Bake me a cake!**
+
+![](/img/activities-for-babies-make-a-cake.jpeg)
 
 This is such a fun age to bake with baby! Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
-Apple spice cake is one of our favorite recipes. He loves to smell each ingredient and touching each utensil (the measuring cups and whisk continue to be his favorites!).
+Apple spice cake is one of our favorite recipes. He loves being part of the process. 
 
-He also loves being part of the process. 
+![activities for babies - baking with baby](/img/activities-for-babies-bake-me-a-cake-2.jpeg)
 
-So I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl. After all of the ingredients are together, he’ll help me mix everything together. He’ll hold the whisk and I’ll put my hand on top of his. Round and round and round we go until the batter is smooth. 
+He'll smell each ingredient and touch each utensil (the measuring cups and whisk continue to be his favorites!).
+
+He’ll also help me along the way. I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl. 
+
+After all of the ingredients are together, he’ll help me mix everything together. He’ll hold the whisk and I’ll put my hand on top of his. Round and round and round we go until the batter is smooth. 
 
 It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
 
@@ -253,11 +264,15 @@ Simple recipes and a dose of patience!
 
 ## 13. Let’s make lemon soup
 
+![activities for babies - make lemon soup ](/img/activities-for-babies-make-lemon-soup-1-.jpeg)
+
 This activity combines two things Hayden loves: water and kitchen supplies. 
 
 In advance, I set out a towel on the floor (in anticipation of water going everywhere!) with some kitchen supplies on top: measuring cups, spatula, whisk, pot, and a colander of lemons. 
 
 I chose lemons because they’re easy for babies to hold and explore. Limes are another idea to try. 
+
+![activities for babies - grab lemons from colander ](/img/activities-for-babies-make-lemon-soup-12.jpeg)
 
 First we explored the colander of lemons: picking up the lemons, touching them, holding them, counting them. 
 
@@ -278,6 +293,8 @@ Pot
 Colander of lemons 
 
 ## 14. Crawling through tunnels
+
+
 
 I brought Hayden into his playroom and he immediately noticed some changes. 
 
