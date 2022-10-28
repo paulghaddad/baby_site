@@ -103,6 +103,7 @@ export const pageQuery = graphql`
           }
         }
         heading
+        subheading
         description
         intro {
           blurbs {
