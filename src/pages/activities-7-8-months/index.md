@@ -230,6 +230,8 @@ Let baby touch the contents in each container.
 \
 Then, help baby pick up an ice cube and plop it into the warm water. Have him touch the dissolving ice cube, and feel the changing temperature of the water.
 
+![activities for babies - playing with ice](/img/activities-for-babies-playing-with-ice.jpeg)
+
 I’ve also done this activity by adding a third container: one filled with cool water. Feel the temperature gradations (warm, cool, cold). See what happens when baby drops ice cubes into cool water compared to warm water. 
 
 #### Suggested items:
@@ -294,7 +296,7 @@ Colander of lemons 
 
 ## 14. Crawling through tunnels
 
-
+![activities for babies - crawl through a tunnel](/img/activities-for-babies-crawl-through-a-tunnel.jpeg)
 
 I brought Hayden into his playroom and he immediately noticed some changes. 
 
@@ -304,9 +306,16 @@ At first he wasn’t sure what to do. So I rolled a ball through the tunnel. He 
 \
 Then the real fun began. 
 
+![activities for babies - crawl through a tunnel and play peek-a-boo](/img/activities-for-babies-crawl-through-a-tunnel-2.jpeg)
+
 Peek-a-boo is a riot with a tunnel! I hid behind one of the plastic containers while Hayden was in the tunnel. He came out of the tunnel to find me and I stayed hidden. Soon enough I popped my head around the corner and many giggles ensued. And so began a long game of peek-a-boo.
 
-Later, I took out Hayden’s pull toy. I pulled it around the plastic bins and through the tunnel, and Hayden chased it with enthusiasm written all over his face!\
+![activities for babies - crawl through a tunnel with pull toy](/img/activities-for-babies-crawl-through-a-tunnel-4.jpeg)
+
+Later, I took out Hayden’s pull toy. I pulled it around the plastic bins and through the tunnel, and Hayden chased it with enthusiasm written all over his face!
+
+![activities for babies - crawl through a tunnel ](/img/activities-for-babies-crawl-through-a-tunnel-3.jpeg)
+
 \
 I think he liked moving through space in a different way. I also think he enjoyed seeing his toys in a new context. 
 
@@ -322,7 +331,11 @@ Toys
 
 ## 15. A crawling challenge
 
+![activities for babies - crawling challenge through blankets](/img/activities-for-babies-crawling-challenge-through-blankets.jpeg)
+
 Choose a variety of blankets, towels, quilts, and even a bedsheet that contain different shapes, colors, and textures. Then, spread them across the floor. But don’t lay them flat; ensure that there are plenty of lumps and bumps. Spread a handful of toys throughout.
+
+![activities for babies - crawling challenge through blankets to knock down tower](/img/activities-for-babies-crawling-challenge-through-blankets-2.jpeg)
 
 Baby will love the challenge of traversing new terrain he has to crawl over to get the toys.
 
@@ -340,9 +353,15 @@ At first, I’d roll the ball, then we both chase after it. Eventually, he figur
 
 ## 17. Ball grab
 
+![activities for babies - ball drop in water](/img/activities-for-babies-ball-drop-in-water.jpeg)
+
 This ball grab activity is not only fun (after all, water is involved!). But it’s also great for hand-eye coordination. 
 
-Fill a small basin with [plastic balls](https://amzn.to/3gOy8A4). Sit down with baby and he’ll try to grab them. The challenge is that these balls are slick in the water and move fast.\
+Fill a small basin with [plastic balls](https://amzn.to/3gOy8A4). Sit down with baby and he’ll try to grab them. The challenge is that these balls are slick in the water and move fast.
+
+![activities for babies - pick up ball in water](/img/activities-for-babies-ball-drop-in-water-2.jpeg)
+
+\
 \
 Hayden loved to pick up a ball, lay it on the towel, then drop the ball back into the basin of water -- splash! See the ball drop, hear it drop into the water, feel the water splash as a result.
 
@@ -358,6 +377,8 @@ Small basin or storage container
 
 ## 18. Play with goo 
 
+![activities for babies - playing with goo](/img/activities-for-babies-playing-with-goo.jpeg)
+
 This two-ingredient recipe -- [cornstarch](https://amzn.to/3U4hxXa) and water -- resulted in a ton of fun for baby and mommy! Plus, the set up is minimal: drizzle some water into a bowl of cornstarch.\
 \
 I put about two cups of cornstarch into a small bowl. Then, I slowly add water until the cornstarch becomes liquid.
@@ -367,6 +388,8 @@ The first time we did this activity Hayden dug right in and took handfuls of the
 This goo has different textures. And if you haven’t tried it, you should!
 
 Once you add the water, the mixture becomes a liquid. Then, it gets clumpy. And then it turns into a solid. The goo that hit the sheet hardened and looked like a Jackson Pollock painting. 
+
+![activities for babies - playing with goo again](/img/activities-for-babies-playing-with-goo-3.jpeg)
 
 As he explored, goo got on his clothes, arms and legs. He loved it! So I got in on the act and took a fist full of goo and drizzled some on his hands. This resulted in a ton of smiles!
 
@@ -384,13 +407,17 @@ Water
 
 ## 19. Explore a cabinet
 
+![activities for babies - explore kitchen cabinet](/img/activities-for-babies-explore-kitchen-cabinet.jpeg)
+
 Set aside some items in a kitchen or  bathroom cabinet and give baby an opportunity to explore them. He’ll love it!
 
 I cleared out a cabinet in the kitchen and in the bathroom and filled each one with baby safe items. Extra space can be hard to find. So if you can’t devote an entire cabinet to baby, try making a cabinet “baby safe” just for this activity. Then, you can restore its usual contents. 
 
 In the kitchen, I’ll add a few mixing bowls, baby spoons, empty plastic containers, and various kitchen supplies (like a whisk or measuring cups). In the bathroom, I have items like washcloths, unused toothbrushes, and loofahs. This activity is such a winner, so I update the items each time we do it. 
 
-Hayden loves taking all of the items out, exploring one item at a time. Then, we put them back. And he takes them all out again. The process continues for some time. 
+![activities for babies - explore kitchen cabinet and how things work](/img/activities-for-babies-explore-kitchen-cabinet-2.jpeg)
+
+Hayden loves taking all of the items out, exploring one item at a time. Then, we put them back. And he takes them all out again. The process continues for some time. He also loves exploring the hinges to see how the cabinet works.
 
 I involve him in every step of the activity. When we enter the bathroom, for example, he helps me turn on the light. We sit on the bathroom floor and he opens the cabinet to explore. At the end of the activity, he closes the cabinet door and helps me turn off the light. 
 
@@ -401,6 +428,8 @@ Kitchen cabinet: oven mitt, empty plastic food containers, baby spoon, mixing bo
 Bathroom cabinet: loofahs, washcloths, unused toothbrushes, floss, hair brush
 
 ## 20. Bathroom tour
+
+![activities for babies - bathroom tour](/img/activities-for-babies-bathroom-tour.jpeg)
 
 Hayden loves tours of our home. We’ll open the closet doors and take a peak in his closet, or mine. We’ll talk and touch the items we see.\
 \
@@ -434,6 +463,8 @@ A variety of balls: tennis ball, wooden ball, plastic ball, felt ball, and a pat
 
 ## 22. Shoe box fun
 
+![activities for babies - shoe box fun](/img/activities-for-babies-shoe-box.jpeg)
+
 Who knew a shoe box could be so interesting?! 
 
 Well, it is. I used a shoe box during playtime with Hayden in different ways. 
@@ -441,6 +472,8 @@ Well, it is. I used a shoe box during playtime with Hayden in different ways. 
 I filled a shoe box with a few teethers and toys. Then I sat with Hayden and we explored them together. He loved opening and closing the shoe box lid, which proved challenging at first. He also seemed to enjoy exploring familiar toys in a new context.
 
 The shoe box proved to be such a thrill that I iterated on it. I set a ball on top of the shoe box. Hayden crawled over and knocked it off. He loved this! 
+
+![activities for babies - shoe box tower](/img/activities-for-babies-shoe-box-tower.jpeg)
 
 Eventually the thrill wore off, so I added another challenge: I took an empty toy box and set this box on top of the shoe box. Then added a ball at the very top. His goal was to knock down the ball.I continued to iterate on this activity by adding more to the stack on top of the shoe box. 
 
@@ -452,13 +485,22 @@ A variety of toys
 
 ## 23. Bring nature inside
 
+![activities for babies - nature sensory board](/img/activities-for-babies-nature-sensory-board.jpeg)
+
 Create a nature sensory board and bring nature inside.\
 \
 I took a walk with Hayden and brought along a few Ziplock freezer bags. I collected a few things along our way: pinecones, rocks, tree bark, leaves, and sticks.\
 \
-I washed everything off and let them dry overnight.\
+I washed everything off and let them dry overnight.
+
+![activities for babies - exploring rocks](/img/activities-for-babies-nature-sensory-board-2.jpeg)
+
 \
-The next day, Hayden and I explored each item and I [glued](https://amzn.to/3gP8nzF) them to the [foam sheet](https://amzn.to/3zp86tI). After the glue dried, we explored board together -- and I didn’t have to worry that he’d pull the items off.\
+The next day, Hayden and I explored each item and I [glued](https://amzn.to/3gP8nzF) them to the [foam sheet](https://amzn.to/3zp86tI). After the glue dried, we explored board together.
+
+![activities for babies - sensory boards](/img/activities-for-babies-nature-sensory-board-3.jpeg)
+
+\
 \
 A week or so later I made another sensory board with Hayden. This time it contained household items: cotton balls, sponges, q-tips, and the like.\
 \
@@ -493,11 +535,15 @@ Suggested Books:**[Where’s the Dog](https://amzn.to/3TY6yPc)? by Nosy Crow
 
 ## 25. Transform everyday objects
 
+![activities for babies - exploring everyday objects](/img/activities-for-babies-exploring-everyday-objects.jpeg)
+
 This activity was such a hit with Hayden. Once again it’s an activity geared around real world objects, and once again he was completely engrossed!\
 \
 I took a piece of aluminum foil, parchment paper, paper towel, and a napkin. The process was the same with each.\
 \
 I shared each piece of material with Hayden: letting him touch and feel each one. Then, I ripped the material in half. He could hear the rip and see the results: two halves. I showed him how the two halves come together to form a whole. 
+
+![activities for babies - exploring everyday objects](/img/activities-for-babies-exploring-everyday-objects-2.jpeg)
 
 I took one half and made a ball with the material. So we had a ball of aluminum foil, a ball of parchment paper, and so on. We explored each ball; slid it across the table; squeezed it; dropped it on the table.\
 \
