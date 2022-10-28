@@ -129,7 +129,9 @@ Small empty box (I used a small cardboard box that held grape tomatoes)
 
 [Painter’s tape](https://amzn.to/3TLfBTY)
 
-## 7. Laundry basket challenge
+## 7. Laundry basket fun  **(3 ideas to try)**
+
+![Activities for babies - sitting in a laundry basket ](/img/activities-for-babies-laundry-basket-fun-1-.jpeg)
 
 Laundry baskets are loads of fun for baby! Here’s a simple idea to try.
 
@@ -139,13 +141,17 @@ Hayden loved this!
 
 He ran his fingers along the cutouts of the basket sides. He also seemed to enjoy exploring his toys in a new context. And he delighted in picking up a toy and dropping it over the edge. 
 
+![Activities for babies - laundry basket with string](/img/activities-for-babies-laundry-basket-with-string.jpeg)
+
 Once the novelty wears off, try this challenge: take some rope and lace it back and forth through the holes on the sides of the laundry basket. Do this until about three-fourths of the basket is laced up. Leave enough space for baby to get into the basket. Then, add some desirable toys or objects.
 
 Now place baby inside of the basket and let him explore!
 
-Hayden loves all things kitchen. So I placed kitchen objects -- spatula, oven mit, measuring cups, and whisk (his favorite) -- in the basket. 
+Hayden loves all things kitchen. So I placed kitchen objects -- spatula, oven mitt, measuring cups, and whisk (his favorite) -- in the basket. 
 
 The rope made it difficult for him to get these things. Using familiar toys or objects in a new context will get baby thinking. It’ll also give baby some good problem-solving practice, as he navigates objects through the rope. 
+
+Another idea to try is to lay a laundry basket on its side, place it against the wall, and fill it with some toys. Then, baby will delight in getting the toys out. 
 
 #### Suggested items:
 
@@ -155,13 +161,21 @@ Baby’s favorite toys 
 
 [Rope](https://amzn.to/3TJIcc0)
 
-## 8. Knock it down, baby!
+## 8. **Can you knock it down?**
 
-Turn a laundry basket upside down and place a favorite toy or two on top. He’ll see the toy, and think to himself: “how do I get this thing down?!” 
+![activities for babies - knock it down baby](/img/baby_activities_laundry_basket_cover.jpeg)
+
+Turn a laundry basket upside down and place a favorite toy or two on top. Baby will see the toy, and think to himself: “how do I get this thing down?!” 
 
 I’m sure that’s what Hayden was thinking the first time I did this activity with him. He stared at his ball placed on top of the basket for what seemed like an eternity: thinking, thinking, thinking. 
 
-He’s since learned to get the toys in different ways, which is why this simple activity is a great one. For an extra challenge, stack a few empty boxes or plastic containers (like a yogurt container) on top of the laundry basket with a toy on top. 
+![](/img/baby_activities_laundry_basket2.jpeg)
+
+He’s since learned to get the toys in different ways, which is why this simple activity is a great one: it’ll **give baby some problem-solving practice**. 
+
+![](/img/baby_activities_laundry_basket1.jpeg)
+
+For an extra challenge, stack a few empty boxes or plastic containers (like a yogurt container) on top of the laundry basket with a toy on top. 
 
 #### Suggested Items:
 
@@ -173,9 +187,15 @@ Small empty box or plastic container
 
 Put the laundry basket upright and fill it with a handful of toys. Baby will figure out how to tip over the basket to get the toys out. 
 
+
+
+![activities for babies - get items from laundry basket](/img/activities-for-babies-get-items-from-laundry-basket.jpeg)
+
 Then comes yet another challenge! Now that the basket is on its side, baby will have to figure out how to reach in and grab the toys. 
 
 ## 10. Sink vs float water activity for baby
+
+![activities for babies - sink vs float](/img/activities-for-babies-sink-vs-float.jpeg)
 
 Water time outside of bath time is so much fun for baby!\
 \
