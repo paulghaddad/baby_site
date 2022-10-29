@@ -11,7 +11,7 @@ title: "Play to Learn "
 
 Hayden loved his [object permanence box](https://amzn.to/3Dek3n1), where he’d drop a ball in the circular hole and it’d roll back out to him.\
 \
-So I iterated on it and created a little basketball hoop.
+**So I iterated on it and created a little basketball hoop**.
 
 ![activities for babies - playing basketball ](/img/activities-for-babies-basketball-2.jpeg)
 
@@ -20,7 +20,7 @@ I took an empty box of grape tomatoes and cut the bottom out of it. Then I attac
 
 ![activities for babies - happy baby playing basketball](/img/activities-for-babies-basketball-3.jpeg)
 
-He loved dropping the ball, or a block or any other toy, through the small box as you can tell in the above picture. This was also a fun activity to do while sitting up. He’d pick up toy after toy and drop it through the box.
+**He loved dropping the ball**, or a block or any other toy, through the small box as you can tell in the above picture. This was also **a fun activity to do while sitting up**. He’d pick up toy after toy and drop it through the box.
 
 #### Suggested Items:
 
@@ -36,9 +36,9 @@ Small empty box (I used a small cardboard box that held grape tomatoes)
 
 ![Activities for babies - go on a scavenger hunt](/img/activities-for-babies-scavenger-hunt.jpeg)
 
-I brought Hayden into his playroom and he knew something was amiss. I’d put several toys under his play quilt. His aim was to find the hidden items
+I brought Hayden into his playroom and he knew something was amiss. I’d put several toys under his play quilt. His aim was to find the hidden items.
 
-He loved the challenge, and his reward: mouthing each item he found!
+**He loved the challenge**, and his reward: mouthing each item he found!
 
 I found it useful to put a few larger items, like a patchwork ball, near the edge of the quilt to give Hayden a hint that there are items under his play quilt.
 
@@ -56,23 +56,25 @@ Hurricane Ian came sweeping through Florida and knocked out our power for a few 
 \
 One experience stands out. 
 
-We were sitting in our living room when I took a flashlight and moved the light around the room. Hayden’s eyes followed. Then, I shined light on various objects in the room -- including my toes. He ate it up!
+We were sitting in our living room when **I took a flashlight and moved the light around the room**. Hayden’s eyes followed. Then, I shined light on various objects in the room -- including my toes. He ate it up!
 
-Then came the hand puppets.\
+Then came the **hand puppets**.\
 \
 I shined the light on the wall and my husband made hand puppets. Hayden’s eyes bounced from the wall to my husband’s hand -- trying to make the connection. 
 
 Something unexpected happened next. 
 
-Hayden took this large rattle and held it up in the air. He then moved his arm up and down. He was watching the wall the entire time, seeing the shadow of the rattle move. He was mesmerized!
+Hayden took this large rattle and held it up in the air. He then moved his arm up and down. He was watching the wall the entire time, **seeing the shadow of the rattle move**. He was mesmerized!
 
-I’ve since used a flashlight during playtime on many other occasions, and the reaction is the same. It hasn’t gotten old. Hayden also loves to see the light come in through the window in the mornings. It stirs up his curiosity. And it’s a perfect opportunity for more hand puppets.
+I’ve since used a flashlight during playtime on many other occasions, and the reaction is the same. It hasn’t gotten old. 
+
+**Hayden also loves to see the light come in through the window in the mornings**. It stirs up his curiosity. 
 
 ![](/img/activities-for-babies-shadows-2.jpeg)
 
-W﻿e've also had fun with shadows on sunny days. It’s fun to sing songs that involve hand motions, like “Where is Thumbkin?,” as I’m doing in the picture above. Hayden loved seeing the shadows.
+It’s fun to **sing songs that involve hand motions**, like “Where is Thumbkin?,” as I’m doing in the picture above. Hayden loved seeing the shadows.
 
-You can also make hand puppets. Or hold an object in the air so baby can see its shadow.  
+You can also make **hand puppets**. Or hold an object in the air so baby can see its shadow.  
 
 #### Suggested Items:
 
@@ -109,7 +111,7 @@ Hayden loves everything related to the kitchen. So one day I took a small plasti
 
 ![Activities for babies - items from pantry](/img/activities-for-babies-pantry-items-2.jpeg)
 
-I intentionally chose items of different shapes, textures, colors, and weights. Some, like the bag of rice, were heavy and required two hands to be lifted out of the bin. I also picked some that made noise when shaken (like the bag of dried beans).  
+**I intentionally chose items of different shapes, textures, colors, and weights**. Some, like the bag of rice, were heavy and required two hands to be lifted out of the bin. I also picked **some that made noise** when shaken (like the bag of dried beans).  
 
 Then, we sat on the floor in the kitchen to explore them. Like all of our kitchen explorations, this was such a hit!
 
@@ -199,7 +201,13 @@ Put the laundry basket upright and fill it with a handful of toys. Baby will fig
 
 ![activities for babies - get items from laundry basket](/img/activities-for-babies-get-items-from-laundry-basket.jpeg)
 
-Then comes yet another challenge! Now that the basket is on its side, baby will have to figure out how to reach in and grab the toys. 
+Now that the basket is on its side, baby will have to figure out how to reach in and grab the toys. 
+
+#### Suggested items:
+
+Laundry basket
+
+Baby’s favorite toys 
 
 ## 10. Sink vs float water activity for baby
 
@@ -256,7 +264,7 @@ Ice cubes
 
 This is such a fun age to bake with baby! Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
-Apple spice cake is one of our favorite recipes. He loves being part of the process. 
+Apple spice cake is one of our favorite recipes. **He loves being part of the process**. 
 
 ![activities for babies - baking with baby](/img/activities-for-babies-bake-me-a-cake-2.jpeg)
 
@@ -268,7 +276,7 @@ After all of the ingredients are together, he’ll help me mix everything togeth
 
 ![activities for babies - cooking with mommy](/img/cooking.jpeg)
 
-It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
+It’s so much fun for him (and me!). But it’s also **teaches him useful things**, like hand-eye coordination and hand dexterity.
 
 #### Suggested items:
 
@@ -318,16 +326,16 @@ Then the real fun began. 
 
 ![activities for babies - crawl through a tunnel and play peek-a-boo](/img/activities-for-babies-crawl-through-a-tunnel-2.jpeg)
 
-Peek-a-boo is a riot with a tunnel! I hid behind one of the plastic containers while Hayden was in the tunnel. He came out of the tunnel to find me and I stayed hidden. Soon enough I popped my head around the corner and many giggles ensued. And so began a long game of peek-a-boo.
+**Peek-a-boo is a riot with a tunnel**! I hid behind one of the plastic containers while Hayden was in the tunnel. He came out of the tunnel to find me and I stayed hidden. Soon enough I popped my head around the corner and many giggles ensued. And so began a long game of peek-a-boo.
 
 ![activities for babies - crawl through a tunnel with pull toy](/img/activities-for-babies-crawl-through-a-tunnel-4.jpeg)
 
-Later, I took out Hayden’s pull toy. I pulled it around the plastic bins and through the tunnel, and Hayden chased it with enthusiasm written all over his face!
+Later, I took out Hayden’s **pull toy**. I pulled it around the plastic bins and through the tunnel, and Hayden chased it with enthusiasm written all over his face!
 
 ![activities for babies - crawl through a tunnel ](/img/activities-for-babies-crawl-through-a-tunnel-3.jpeg)
 
 \
-I think he liked moving through space in a different way. I also think he enjoyed seeing his toys in a new context. 
+I think he liked **moving through space in a different way**. I also think he enjoyed **seeing his toys in a new context**. 
 
 If you think one tunnel is fun. Then you should add a second one. And if you’re running out of plastic bins, then simply lean a laundry basket against the wall; drape a baby blanket over the basket for dramatic effect.
 
@@ -347,7 +355,7 @@ Choose a variety of blankets, towels, quilts, and even a bedsheet that contain d
 
 ![activities for babies - crawling challenge through blankets to knock down tower](/img/activities-for-babies-crawling-challenge-through-blankets-2.jpeg)
 
-Baby will love the challenge of traversing new terrain he has to crawl over to get the toys.
+**Baby will love the challenge of traversing new terrain** he has to crawl over to get the toys.
 
 #### Suggested Items:
 
@@ -373,7 +381,7 @@ Fill a small basin with [plastic balls](https://amzn.to/3gOy8A4). Sit down with 
 
 \
 \
-Hayden loved to pick up a ball, lay it on the towel, then drop the ball back into the basin of water -- splash! See the ball drop, hear it drop into the water, feel the water splash as a result.
+Hayden loved to pick up a ball, lay it on the towel, then drop the ball back into the basin of water -- splash! **See the ball drop, hear it drop into the water, feel the water splash as a result**.
 
 Dropping a single ball was so much fun for Hayden that I took several balls and dropped them into the water all at once. He loved it!\
 \
@@ -429,7 +437,7 @@ In the kitchen, I’ll add a few mixing bowls, baby spoons, empty plastic contai
 
 Hayden loves taking all of the items out, exploring one item at a time. Then, we put them back. And he takes them all out again. The process continues for some time. He also loves exploring the hinges to see how the cabinet works.
 
-I involve him in every step of the activity. When we enter the bathroom, for example, he helps me turn on the light. We sit on the bathroom floor and he opens the cabinet to explore. At the end of the activity, he closes the cabinet door and helps me turn off the light. 
+**I involve him in every step of the activity.** When we enter the bathroom, for example, he helps me turn on the light. We sit on the bathroom floor and he opens the cabinet to explore. At the end of the activity, he closes the cabinet door and helps me turn off the light. 
 
 #### Suggested Items:
 
@@ -447,7 +455,7 @@ We’ll also take a stop in the bathroom -- a room that catches his fascination.
 
 I place him on the counter and turn on the water. He enjoys watching the water rush down the drain. I help him extend his arm and sprinkle some water on it. 
 
-Then, I fill the sink with water. I let the water sit for a few seconds then drain it. He’s mesmerized by the entire process. Ω
+Then, I fill the sink with water. I let the water sit for a few seconds then drain it. He’s mesmerized by the entire process. 
 
 So we it repeat it again, and again.
 
@@ -459,7 +467,7 @@ Hayden loved to play with or chase a ball. So one day I took a variety of balls 
 \
 I took one ball at a time and dropped it. 
 
-Did it bounce? How many times? What kind of sound did it make?
+**Did it bounce? How many times? What kind of sound did it make?**
 
 These are the kinds of things we were studying. 
 
@@ -526,7 +534,7 @@ Then we compared the nature board to the household one. The items on the boards 
 
 Lift-the-flap books are such a hit at this age!\
 \
-I noticed that some lift-the-flap books have flaps that are easier to use than others. 
+Some lift-the-flap books have flaps that are easier to use than others. 
 
 If baby is just starting out with these books or is having trouble with them, try books by Nosy Crow, which feature felt flaps. Hayden liked the book [Where’s the Dog?](https://amzn.to/3TY6yPc) The flaps are much easier to grab and lift.
 
@@ -535,7 +543,9 @@ Rod Campbell’s books [Oh Dear!](https://amzn.to/3gP1w9v) and [Dear Zoo](https:
 Then progress to books like, [Where’s Spot?](https://amzn.to/3SHwFbQ) by Eric Hill.
 
 **\
-Suggested Books:**[Where’s the Dog](https://amzn.to/3TY6yPc)? by Nosy Crow
+Suggested Books:**
+
+[Where’s the Dog](https://amzn.to/3TY6yPc)? by Nosy Crow
 
 [Oh Dear!](https://amzn.to/3gP1w9v) by Rod Campbell
 
@@ -594,7 +604,9 @@ And so it went. The apple was his favorite, and the onion caught him the most by
 
 [Colander](https://amzn.to/3sysdSm)
 
-A variety of fruits and veggiesCutting board and dull knife (for parent or caregiver to use in the second part of the activity)
+A variety of fruits and veggies
+
+Cutting board and dull knife (for parent or caregiver to use in the second part of the activity)
 
 ## 27. Hide and seek
 
