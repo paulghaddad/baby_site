@@ -46,22 +46,8 @@ intro:
         *Knock down the tower
         *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
-    - image: /img/img_9276.jpeg
-      header: 7-8 months
-      url: /activities-7-8-months
-      text: |-
-        20 activities to try, including:
-        *Parts of the body 
-        *Splish splash water time fun!
-        *Catch
-        *Mirror, mirror on the wall
-        *Abstract art
-        *Spice it up!
-        *Knock down the tower
-        *Get to know your fruits and veggies!
-        *Fun with measuring cups . . . and many more!
     - image: /img/img_9320.jpeg
-      header: 9 months+
+      header: 7 months+
       text: More activities for older babies coming soon!
   heading: Activities for ages 0-8 months (activities for more age groups coming soon!)
   description: Activities, books, and toys for babies
