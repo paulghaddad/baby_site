@@ -46,9 +46,9 @@ intro:
         *Knock down the tower
         *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
-    - image: /img/img_9320.jpeg
+    - image: /img/activities-for-babies-basketball-2.jpeg
       header: 7 months+
-      text: More activities for older babies coming soon!
+      text: 27 activities to try
   heading: Activities for ages 0-8 months (activities for more age groups coming soon!)
   description: Activities, books, and toys for babies
 main:
