@@ -46,21 +46,21 @@ intro:
         *Knock down the tower
         *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
-    - image: /img/img_9276.jpeg
+    - image: /img/activities-for-babies-crawl-through-a-tunnel-3.jpeg
       header: 7-8 months
       url: /activities-7-8-months
       text: |-
-        20 activities to try, including:
-        *Parts of the body 
-        *Splish splash water time fun!
-        *Catch
-        *Mirror, mirror on the wall
-        *Abstract art
-        *Spice it up!
-        *Knock down the tower
-        *Get to know your fruits and veggies!
-        *Fun with measuring cups . . . and many more!
-    - image: /img/img_9320.jpeg
+        27 activities to try, including:
+        *Basketball for babies
+        *Go on a scavenger hunt
+        *Experiment with rolled oats 
+        *Knock it down, baby!
+        *Tip it over and pour it out
+        *Warm vs cold: ice cubes in warm water 
+        *Lemon soup
+        *Bake me a cake!
+        *Crawling through tunnels . . . and many more!
+    - image: /img/activities-for-babies-crawl-through-a-tunnel-2.jpeg
       header: 9 months+
       text: More activities for older babies coming soon!
   heading: Activities for ages 0-8 months (activities for more age groups coming soon!)
