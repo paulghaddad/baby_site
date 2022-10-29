@@ -5,21 +5,32 @@ title: "Play to Learn "
 ---
 ## Activities 7-8 Months
 
-## 1. Ice cubes on cookie sheet
+## 1. Basketball for babies
 
-Put some ice cubes on a cookie sheet and let baby explore. It’s so simple, but so fascinating to baby!
+![activities for babies - basketball ](/img/activities-for-babies-basketball-1.jpeg)
 
-Hayden was hesitant at first with the cold sensation from the ice cubes. Then he got really into it, and loved watching the cubes glide across the cookie sheet. 
+Hayden loved his [object permanence box](https://amzn.to/3Dek3n1), where he’d drop a ball in the circular hole and it’d roll back out to him.\
+\
+So I iterated on it and created a little basketball hoop.
 
-I made my own ice cubes by freezing water in a freezer tray that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
+![activities for babies - playing basketball ](/img/activities-for-babies-basketball-2.jpeg)
+
+\
+I took an empty box of grape tomatoes and cut the bottom out of it. Then I attached it to the edge of a plastic storage bin using painters tape. The bin was just the right height for Hayden to reach up with his arm with a ball, while on his belly, and “dunk.” 
+
+![activities for babies - happy baby playing basketball](/img/activities-for-babies-basketball-3.jpeg)
+
+He loved dropping the ball, or a block or any other toy, through the small box as you can tell in the above picture. This was also a fun activity to do while sitting up. He’d pick up toy after toy and drop it through the box.
 
 #### Suggested Items:
 
-Ice cubes
+Small ball 
 
-Cookie sheet 
+Small empty box (I used a small cardboard box that held grape tomatoes)
 
-[Baby food ice cube tray](https://amzn.to/3DEMgoE)
+[Plastic storage bin](https://www.containerstore.com/s/clear-weathertight-totes/d?productId=10026213)
+
+[Painter’s tape](https://amzn.to/3TLfBTY)
 
 ## 2﻿. Go on a scavenger hunt
 
@@ -39,6 +50,8 @@ A variety of toys
 
 ## 3. Fun with shadows
 
+![Activities for babies - using a flashlight during playtime](/img/activities-for-babies-flashlight.jpg)
+
 Hurricane Ian came sweeping through Florida and knocked out our power for a few days. I had ample time to use a flashlight with Hayden. And he loved it!\
 \
 One experience stands out. 
@@ -55,7 +68,11 @@ Hayden took this large rattle and held it up in the air. He then moved his arm u
 
 I’ve since used a flashlight during playtime on many other occasions, and the reaction is the same. It hasn’t gotten old. Hayden also loves to see the light come in through the window in the mornings. It stirs up his curiosity. And it’s a perfect opportunity for more hand puppets.
 
-W﻿e've also had fun with shadows on sunny days. When the sun shines through the window, instead of closing the blinds, make some hand puppets. Or hold an object in the air so baby can see its shadow. He'll love it!
+![](/img/activities-for-babies-shadows-2.jpeg)
+
+W﻿e've also had fun with shadows on sunny days. It’s fun to sing songs that involve hand motions, like “Where is Thumbkin?,” as I’m doing in the picture above. Hayden loved seeing the shadows.
+
+You can also make hand puppets. Or hold an object in the air so baby can see its shadow.  
 
 #### Suggested Items:
 
@@ -102,32 +119,23 @@ Small plastic bin or a large bowl
 
 Items from your pantry
 
-## 6. Basketball for babies
+## 6. Ice cubes on cookie sheet
 
-![activities for babies - basketball ](/img/activities-for-babies-basketball-1.jpeg)
+Put some ice cubes on a cookie sheet and let baby explore. It’s so simple, but so fascinating to baby!
 
-Hayden loved his [object permanence box](https://amzn.to/3Dek3n1), where he’d drop a ball in the circular hole and it’d roll back out to him.\
-\
-So I iterated on it and created a little basketball hoop.
+Hayden was hesitant at first with the cold sensation from the ice cubes. Then he got really into it, and loved watching the cubes glide across the cookie sheet. 
 
-![activities for babies - playing basketball ](/img/activities-for-babies-basketball-2.jpeg)
-
-\
-I took an empty box of grape tomatoes and cut the bottom out of it. Then I attached it to the edge of a plastic storage bin using painters tape. The bin was just the right height for Hayden to reach up with his arm with a ball, while on his belly, and “dunk.” 
-
-![activities for babies - happy baby playing basketball](/img/activities-for-babies-basketball-3.jpeg)
-
-He loved dropping the ball, or a block or any other toy, through the small box as you can tell in the above picture. This was also a fun activity to do while sitting up. He’d pick up toy after toy and drop it through the box.
+I made my own ice cubes by freezing water in a freezer tray that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
 
 #### Suggested Items:
 
-Small ball 
+Ice cubes
 
-Small empty box (I used a small cardboard box that held grape tomatoes)
+Cookie sheet 
 
-[Plastic storage bin](https://www.containerstore.com/s/clear-weathertight-totes/d?productId=10026213)
+[Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-[Painter’s tape](https://amzn.to/3TLfBTY)
+
 
 ## 7. Laundry basket fun  **(3 ideas to try)**
 
@@ -257,6 +265,8 @@ He'll smell each ingredient and touch each utensil (the measuring cups and whisk
 He’ll also help me along the way. I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl. 
 
 After all of the ingredients are together, he’ll help me mix everything together. He’ll hold the whisk and I’ll put my hand on top of his. Round and round and round we go until the batter is smooth. 
+
+![activities for babies - cooking with mommy](/img/cooking.jpeg)
 
 It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
 
@@ -559,15 +569,24 @@ Paper towel
 
 Napkin 
 
-## 26. Kitchen exploration
+## 26. Kitchen exploration 
+
+![activities for babies - exploring the kitchen ](/img/activities-for-babies-kitchen-exploration.jpeg)
 
 Hayden and I have been exploring things in the kitchen for months. At this age, we took kitchen exploration to a new level. 
 
-I washed a [colander](https://amzn.to/3sysdSm) full of produce containing fruits and veggies like an apple, lemon, carrot, potato, red bell pepper, onion, and squash. We explored each piece.\
+![activities for babies - exploring produce](/img/activities-for-babies-exploring-the-kitchen-4.jpeg)
+
+I washed a [colander](https://amzn.to/3sysdSm) full of produce containing fruits and veggies like an apple, lemon, carrot, potato, red bell pepper, onion, and squash. We explored each piece.
+
+![activities for babies - exploring the kitchen with mommy](/img/activities-for-babies-exploring-the-kitchen-3.jpeg)
+
 \
 He’d pick the lemon from the colander, for example, and he’d hold it. I’d talk about it. 
 
 Then, I cut large pieces of each item to engage his senses in a different way. I cut a chunk of the lemon and held it under his nose. Then I let him touch the inside of the lemon. 
+
+![activities for babies - exploring onions](/img/cooking-with-mommy.jpeg)
 
 And so it went. The apple was his favorite, and the onion caught him the most by surprise!
 
@@ -578,6 +597,8 @@ And so it went. The apple was his favorite, and the onion caught him the most by
 A variety of fruits and veggiesCutting board and dull knife (for parent or caregiver to use in the second part of the activity)
 
 ## 27. Hide and seek
+
+![activities for babies - hide and seek](/img/activities-for-babies-crawl-through-a-tunnel-2.jpeg)
 
 Hide and seek is so much fun with baby!\
 \
