@@ -49,7 +49,7 @@ intro:
     - image: /img/img_9320.jpeg
       header: 7 months+
       text: More activities for older babies coming soon!
-  heading: Activities for ages 0-6 months (activities for more age groups coming soon!)
+  heading: Activities for ages 0-8 months (activities for more age groups coming soon!)
   description: Activities, books, and toys for babies
 main:
   heading: Activities for babies
