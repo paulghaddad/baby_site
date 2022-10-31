@@ -35,6 +35,8 @@ A good book is hard to find. Here are some of Hayden’s favorites (so far!). �
 
 [Corduroy by Don Freeman](https://amzn.to/3Dc1OQj)
 
+[T﻿he Little Red Hen by](https://amzn.to/3T0iUWc)[ Byron Barton](https://amzn.to/3MKYhM0)
+
 ### Animals
 
 [Panda Bear, Panda Bear What Do You See? by Bill Martin Jr.](https://amzn.to/3yV4eAb)
