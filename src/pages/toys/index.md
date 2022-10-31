@@ -70,3 +70,13 @@ Mirror
 [Rainbow Fabric Ball](https://amzn.to/3Tyw2SM) (this is similar to the one I have)
 
 [Drip Drop Cups](https://www.target.com/p/lovevery-drip-drop-cups-12pc/-/A-82224605?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&DFA=71700000012735142&CPNG=PLA_Baby%2BShopping_Local%7CBaby_Ecomm_Baby&adgroup=SC_Baby_Low%2BMargin&LID=700000001170770pgs&LNM=PRODUCT_GROUP&network=g&device=c&location=1015223&targetid=pla-901157174765&ds_rl=1242884&ds_rl=1246978&gclid=Cj0KCQjw7KqZBhCBARIsAI-fTKIF7LRKXrp4W3npZd6jO9QHbyZYQtXQJ1hVX552W_hHHtFagVSWMzYaAoUsEALw_wcB&gclsrc=aw.ds)
+
+### 7-8 Months
+
+[Handcrafted Patchwork Ball](https://www.bellalunatoys.com/products/patchwork-ball?_pos=1&_sid=a8d8b3736&_ss=r)
+
+[Skwish Wooden Baby Rattle & Teething Toy](https://www.bellalunatoys.com/products/wooden-baby-rattle-teether-toy-manhattan-toy-skwish?_pos=1&_sid=035e32d3f&_ss=r)
+
+[Object Permanence Box](https://www.amazon.com/Montessori-Object-Permanence-Box-Development/dp/B088ZY25MN/ref=sr_1_8?crid=21RZA6COYUNNY&keywords=Ball%2BDrop%2BBox&qid=1663769545&sprefix=ball%2Bdrop%2Bbox%2Caps%2C200&sr=8-8&th=1) (this is similar to the one I have)
+
+[Dancing Alligator Wooden Pull Toy](https://www.bellalunatoys.com/products/plan-toys-dancing-alligator-wooden-pull-toy?_pos=1&_sid=20bddadac&_ss=r)
