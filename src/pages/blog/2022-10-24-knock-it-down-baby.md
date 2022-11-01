@@ -3,7 +3,7 @@ templateKey: blog-post
 title: Knock It Down, Baby!
 date: 2022-10-24T09:52:30.872Z
 description: A laundry basket is a fun activity for baby.
-featuredpost: true
+featuredpost: false
 featuredimage: /img/baby_activities_laundry_basket_cover.jpeg
 tags:
   - activities
