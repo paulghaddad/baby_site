@@ -337,8 +337,6 @@ To keep things relatively clean, put baby in a [mess-proof bib](https://amzn.to/
 
 [Ziplock freezer bags](https://amzn.to/3SdIfLT)
 
-
-
 ## **15. Abstract art**
 
 ![](/img/img_9285.jpeg)
@@ -352,6 +350,10 @@ Place a few [drops of paint](https://amzn.to/3CNsiWZ) on a piece of paper. [Cons
 Place the paper with paint into the [Ziplock freezer bag](https://amzn.to/3SdIfLT) and close the bag. You can use tape to secure the bag to the table, if you wish.
 
 Now baby can run their fingers over the drops of paint and squish the paint drops with their hands -- without any mess! 
+
+![activities for babies - abstract art](/img/activities-for-babies-abstract-art-in-bag.jpeg)
+
+Remove the artwork from the bag after baby is finished. Otherwise, it’ll stick to the bag. Plus, the smeared paint on the bag makes a neat artwork itself!
 
 **Suggested Items**:
 
