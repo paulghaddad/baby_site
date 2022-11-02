@@ -123,11 +123,23 @@ Items from your pantry
 
 ## 6. Ice cubes on cookie sheet
 
-Put some ice cubes on a cookie sheet and let baby explore. It’s so simple, but so fascinating to baby!
+![activities for babies - touching ice](/img/activities-for-babies-ice-cubes-1.jpeg)
+
+Put some ice cubes on a cookie sheet or panand let baby explore. It’s so simple, but so fascinating to baby!
 
 Hayden was hesitant at first with the cold sensation from the ice cubes. Then he got really into it, and loved watching the cubes glide across the cookie sheet. 
 
-I made my own ice cubes by freezing water in a freezer tray that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
+![activities for babies - make it glide](/img/activities-for-babies-touching-ice-cube.jpeg)
+
+**This activity is great for hand-eye coordination**. The cubes glide quickly across the pan, which makes them hard to grab and pick up.
+
+
+
+![activities for babies - holding ice cube](/img/activities-for-babies-holding-ice-cube.jpeg)
+
+I made my own ice cubes by freezing water in a [freezer tray](https://www.amazon.com/gp/product/B00T6ZG9AA?ie=UTF8&psc=1&linkCode=sl1&tag=learningbabie-20&linkId=a954816a189bde1f12d179e2842703da&language=en_US&ref_=as_li_ss_tl) that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
+
+
 
 #### Suggested Items:
 
@@ -136,8 +148,6 @@ Ice cubes
 Cookie sheet 
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
-
-
 
 ## 7. Laundry basket fun  **(3 ideas to try)**
 
@@ -196,8 +206,6 @@ Small empty box or plastic container
 ## 9. Tip it over and pour it out
 
 Put the laundry basket upright and fill it with a handful of toys. Baby will figure out how to tip over the basket to get the toys out. 
-
-
 
 ![activities for babies - get items from laundry basket](/img/activities-for-babies-get-items-from-laundry-basket.jpeg)
 
@@ -579,7 +587,7 @@ Paper towel
 
 Napkin 
 
-## 26. Kitchen exploration 
+## 26. Kitchen exploration
 
 ![activities for babies - exploring the kitchen ](/img/activities-for-babies-kitchen-exploration.jpeg)
 
