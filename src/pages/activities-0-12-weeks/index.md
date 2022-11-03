@@ -11,13 +11,13 @@ title: "Play to Learn "
 
 I began sharing my passion for art with Hayden very early on. I purchased an [Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u). 
 
-Then, I'd off a few pages, and **we’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.**
+Then, I'd off a few pages, and we’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.
 
 I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
 
 This was such a hit!
 
-**So** I purchased a baby animal and national park calendars, and did the **same thing with baby animals and beautiful places**.
+So I purchased a baby animal and national park calendars, and did thesame thing with baby animals and beautiful places.
 
 This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
 
@@ -45,7 +45,7 @@ This worked great until he was ready to grasp objects. 
 
 So I customized it again. 
 
-I took objects -- rattles and teethers -- and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
+I took some of his toys and attached them to the play gym with [red ribbon](https://www.amazon.com/gp/product/B091GNB79S/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1). He loved the challenge of grabbing objects overhead or kicking them with his feet. I made the objects low enough so he could engage his hands and feet.
 
 #### **Suggested Items**:
 
