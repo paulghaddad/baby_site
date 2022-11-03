@@ -367,13 +367,13 @@ Remove the artwork from the bag after baby is finished. Otherwise, it’ll stick
 
 ## **16.** Sensory boxes: touch, feel, pull
 
-![activities for babies -- kitchen exploration](/img/activities-for-babies-kitchen.jpeg)
+![activities for babies - bathroom exploration](/img/activities-for-babies-bathroom-exploration.jpeg)
 
 Help baby develop his senses by creating sensory boxes, using everyday items from home. 
 
 It’s fun to create themed sensory boxes. **Just take a small box or basket and fill it with a handful or so of times**. 
 
-![Bathroom sensory box](/img/img_9263.jpeg)
+![activities for babies -- kitchen exploration](/img/activities-for-babies-kitchen.jpeg)
 
 
 
