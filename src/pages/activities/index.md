@@ -1119,7 +1119,7 @@ The older Hayden got, the messier this activity became. So I recommend putting t
 
 Large bowl
 
-## 5. Dry goods grocery run
+## 5. **Raid the Pantry**
 
 ![Activities for babies - explore pantry items](/img/activities-for-babies-pantry-items.jpeg)
 
