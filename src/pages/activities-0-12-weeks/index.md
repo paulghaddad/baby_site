@@ -9,15 +9,15 @@ title: "Play to Learn "
 
 ![Abstract art](/img/pexels-steve-johnson-1269968.jpg)
 
-I began sharing my passion for art with Hayden very early on. I purchased an [Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u). 
+I began sharing my passion for art with Hayden very early on. 
 
-Then, I'd off a few pages, and we’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk”about them.
+I purchased an [Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u). Then, I'd off a few pages, and we’d lay side-by-side on our backs on his playmat to look at beautiful artwork and “talk” about them.
 
 I’d point out and describe what I saw; I’d also ask him questions, always pausing for him to respond back with a coo, grunt, or even a smile.
 
 This was such a hit!
 
-So I purchased a baby animal and national park calendars, and did thesame thing with baby animals and beautiful places.
+So I purchased a baby animal and national park calendars, and did the same thing with baby animals and beautiful places.
 
 This activity is especially fun now that he’s older and much more talkative; he loves to babble in response to my comments and questions. 
 
@@ -71,11 +71,9 @@ Babies love mobiles! And so should you -- because you can use them in many diffe
 
 ![mobiles](/img/2fe15ecd-f4a1-4349-b320-c19aac68baf4.jpeg)
 
-**I used mobiles above Hayden’s play quilt**, where he’d stretch his arms and legs watching and reacting to the shapes floating above him.
+**I also used mobiles above Hayden’s play quilt**, where he’d stretch his arms and legs watching and reacting to the shapes floating above him.
 
-These mobiles were a gift that kept on giving because I used them in different ways as my baby got older and more advanced.
-
-In addition to using these mobiles overhead, **I also used them during tummy time**. This gave Hayden a different perspective. Because mobiles are so fun to look at, they motivated him to lift that heavy head! 
+These mobiles were a gift that kept on giving because I used them in different ways, like during tummy time. This gave Hayden a different perspective. Because mobiles are so fun to look at, they motivated him to lift that heavy head!
 
 Then, as he began to become more mobile on his tummy, I used the mobiles to encourage Hayden to rotate. I’d hold a mobile in front of him, then slowly move around his playmat and he’d follow me. 
 
@@ -91,7 +89,7 @@ Then, as he began to become more mobile on his tummy, I used the mobiles to enco
 
 A rattle is a basic toy that can serve many purposes. **Use it to get your baby accustomed to different textures and sounds**. That’s why I found it useful to have several rattles. 
 
-Rattles also got my baby accustomed to opening and closing his hands to grasp objects.
+Rattles also got Hayden accustomed to opening and closing his hands to grasp objects.
 
 ![baby holding rattle](/img/image_5.jpg)
 
@@ -151,11 +149,11 @@ But I soon found it more comfortable to lay on our backs, side-by-side on his pl
 
 Turn on some beautiful music and listen for a few minutes. 
 
-I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.” 
+I like to expose Hayden to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.” 
 
 You can also sing to your baby -- and you should! Don’t worry about having a bad voice or sounding out of tune, like I do. 
 
-Just sing and maybe even sway back and forth to the tune. Or simply singing “lalalala” repeatedly is fun for your baby. 
+Just sing and maybe even sway back and forth to the tune. Or simply singing “lalalala” repeatedly is fun for baby. 
 
 #### **Suggested item:**
 
@@ -165,7 +163,7 @@ Just sing and maybe even sway back and forth to the tune. Or simply singing “l
 
 Make time for your baby to study -- faces that is. 
 
-My baby loves to study faces. It’s a fascination that began early on and continues to this day.
+Hayden loves to study faces. It’s a fascination that began early on and continues to this day.
 
 We’d lay on his playmat and explore each others’ face. Sometimes I let him explore my face: I’d take his hand and touch my face and point out different facial features. “This is mommy’s nose,” I’d say as I’d guide his hand to touch my nose. 
 
@@ -175,7 +173,7 @@ Other times, I’d point out different parts of his face: nose, ears, chin, etc.
 
 Besides, babies love to look at themselves in the mirror -- so it’s definitely a worthy purchase.
 
-**Baby can also study faces by looking at pictures of babies**. Books about babies, like [Baby Faces](https://amzn.to/3eL0jz6) and [Global Babies](https://amzn.to/3Dgu1oY), worked great for this activity. 
+**Baby can also study faces by looking at pictures of babies**. Books about babies, like [Baby Faces](https://amzn.to/3eL0jz6) and [Global Babies](https://amzn.to/3Dgu1oY), are a place to start. 
 
 These books also work great during tummy time. Prop open a book and lay it against a wall, so baby has something interesting to look at while on his tummy.
 
@@ -195,7 +193,7 @@ Mirror
 
 This may seem mundane to you, but being outside is all new territory for baby! 
 
-I’d hold my baby and walk around our backyard, narrating what I’d see and hear, as my baby took in this different environment. 
+I’d hold Hayden and walk around our backyard, narrating what I’d see and hear, as he took in this different environment. 
 
 **Point out the sights and sounds you’re experiencing**. For example, “I hear the birds chirping.” Or “do you feel the breeze?!” 
 
@@ -207,13 +205,13 @@ You can also **introduce elements of nature:** pull off a leaf from a tree or pi
 
 We know that black and white cards matter for babies. But did you realize the many different ways you can engage baby with them?! 
 
-**Hang black and white cards from your play gym**. That’s what I did. My baby wasn’t engaging with the items that came with his play gym at first. So I added my own.
+**Hang black and white cards from your play gym**. That’s what I did. Hayden wasn’t engaging with the items that came with his play gym at first. So I added my own.
 
 I took three [](https://www.amazon.com/gp/product/B08DLR33HG/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)black and white cards, punched a hole in each one and attached them to the play gym with a string. The cards dangled from the top of the play gym. There were images on both sides of the cards, which make them fun to look at -- especially when they moved.
 
 Eventually, he learned to bat at the cards and loved making them move!
 
-Other times I attached the cards to the top of the play gym and to the side of it -- taking full use of the play gym structure. This also gets him to move his head in different directions. My baby loved finding the cards everywhere he looked. 
+Other times I attached the cards to the top of the play gym and to the side of it -- taking full use of the play gym structure. This also gets him to move his head in different directions. Hayden loved finding the cards everywhere he looked. 
 
 **Visual tracking is another way to use black and white cards**. 
 
@@ -244,15 +242,13 @@ While baby is on his tummy on his playmat: 
 
 I’d also tear a few pages from daily calendars of baby animals ([Baby Animals 2022 Box Calendar](https://amzn.to/3EWUPMi)) or artwork ([Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u)[](https://www.amazon.com/Page-Day-Gallery-Calendar-2022/dp/1523512237/ref=sr_1_2?keywords=Art+Page-A-Day+Gallery+Calendar&qid=1662978798&sr=8-2)) and line the wall with them. Hayden was mesmerized!
 
-Tummy time can be really hard for baby. 
-
 ![tummy time using a pillow](/img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg)
 
-Ease him into it by using a nursing pillow to prop up baby.
+Tummy time can be really hard for baby. Ease him into it by using a nursing pillow to prop up baby.
 
 You can also have baby lay on your chest as you lay flat on the floor or on a couch. 
 
-Or sit at an incline and rest baby on your chest. I found this way to be very effective early on; it was much easier for my baby to lift that heavy head. 
+Or sit at an incline and rest baby on your chest. I found this way to be very effective early on; it was much easier for Hayden to lift that heavy head. 
 
 #### **Suggested Items:**
 
