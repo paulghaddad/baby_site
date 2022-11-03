@@ -27,7 +27,7 @@ Sit on the floor with baby sitting in front of you. Then, give baby a small ball
 
 Inevitably, baby will drop the ball. At this point, encourage him to pick it back up. Or he may do this on his own.
 
-It’s hard to do because a ball rolls, and can be hard to grasp. But this gives baby great practice in building hand-eye coordination. 
+It’s hard to do because a ball rolls, and can be hard to grasp. But **this gives baby great practice in building hand-eye coordination**. 
 
 At the same time, he builds all of the muscles that are involved in the sitting position. 
 
