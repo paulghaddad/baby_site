@@ -21,11 +21,11 @@ title: Baby's Weekly and Daily Log Book
 
 [P﻿urchase Baby's Weekly and Daily Log Book](https://amzn.to/3yZgO1n)
 
-I was a sleep-deprived, first-time parent looking to establish a routine and monitor my newborn’s day: feeds, activities, sleep, diapers, and supplements. As a nursing new mom with a low birth weight baby, I also needed to track my baby’s weight. And I wanted to document all of the special moments we had together each week. How do I stay organized with all of these details, while running on little sleep?\
+I was a sleep-deprived, first-time parent looking to establish a routine and monitor my newborn’s day: feeds, activities, sleep, diapers, and supplements. As a nursing new mom with a low birth weight baby, I also needed to track my baby’s weight. And I wanted to document all of the special moments we had together each week. How could I stay organized with all of these details?\
 \
 Baby’s Weekly & Daily Log Book was the solution.\
 \
-It’s organized by feed, so I was reassured that my breastfed baby was getting enough to eat: I could record the feeding time, duration of feed, and breast rotation. Plus, I used the weight tracker to ensure he was gaining weight.\
+It’s organized by feed, so I was reassured that my baby was getting enough to eat by recording the feeding time, duration of feed, and breast rotation. Plus, I used the weight tracker to ensure he was gaining weight.\
 \
 I established a routine with my baby by keeping track of his activities and sleep and by filling out the weekly and daily reflection questions, which helped me to spot patterns. This meant more predictability and more sleep -- for mom and baby!\
 \
