@@ -15,10 +15,6 @@ Oftentimes a toy or educational supplies you purchase for a two month old can be
 
 [Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
-[Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) 
-
-[Baby Animals 2022 Box Calendar ](https://amzn.to/3EWUPMi)
-
 [Play Gym](https://lovevery.com/products/the-play-gym)  
 
 Mirror
@@ -35,11 +31,7 @@ Mirror
 
 ### 3-4 months
 
-[Play Gym](https://lovevery.com/products/the-play-gym)  
-
 [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
-
-[Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
 
 [Bunny Silicone and Wood Teether](https://louloulollipop.com/products/bunny-silicone-and-wood-teething-ring?_pos=1&_sid=1c18a83f6&_ss=r&variant=40332182683696)
 
@@ -55,13 +47,9 @@ Mirror
 
 [Wooden balls](https://woodpeckerscrafts.com/wooden-balls/)  
 
-[Montessori Mobile Toys Set of 4](https://www.etsy.com/listing/1120382455/montessori-mobile-toys-set-of-4?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=montessori+mobile&ref=sc_gallery-1-2&frs=1&plkey=e87543f0e5bf3b96d2b01a823e970497168e0653%3A1120382455&variation1=2396603509)
-
 [Baby’s First Blocks](https://www.bellalunatoys.com/products/haba-baby-s-first-wooden-blocks?_pos=1&_sid=ce3cc354a&_ss=r)
 
 [Natural Wooden Beads Grasper](https://www.bellalunatoys.com/products/grimms-natural-wooden-beads-grasper-baby-clutching-toy?_pos=1&_sid=1818e23d5&_ss=r)
-
-[Vermont Wooden Baby Rattle](https://www.bellalunatoys.com/products/vermont-maple-wooden-baby-rattle?_pos=1&_sid=9e4f35a8b&_ss=r)
 
 [Spinning Rainbow Drum](https://amzn.to/3TA08pa) (this is similar to the one I have)
 
