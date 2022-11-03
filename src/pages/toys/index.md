@@ -35,8 +35,6 @@ Mirror
 
 ### 3-4 months
 
-[BabyBjörn Bouncer](https://amzn.to/3EYsoxz)
-
 [Play Gym](https://lovevery.com/products/the-play-gym)  
 
 [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker)
