@@ -279,9 +279,9 @@ I’d open the bag of frozen blueberries and bring them over to him to let him t
 
 Then, I’d go over to the kitchen cupboard and pull out a bowl. I’d bring it over to him and let him explore it with me. He loved to touch it, as I’d **talk about the color, texture, and weight**. I’d do the same thing with a spoon, placemat, and napkin, along with any other breakfast items. 
 
-**The process mesmerized him**. 
-
 He’d watch carefully as I’d pour some cereal into a bowl and sprinkle a few berries on top. I’d kneel down to his level so he could see and hear me pour orange juice into my glass.
+
+**The process mesmerized him**. 
 
 Once breakfast was made, I’d sit at the table and talk with Hayden as I ate. 
 
@@ -307,13 +307,13 @@ At first, Haden would only last a few minutes in his bouncer. He was anxious to 
 
 **Make grasping objects fun for baby**.
 
-I took some of Hayden's favorite rattles and teethers and hung them from his play gym with [red ribbon](https://amzn.to/3TCSEBJ). That way, they were low enough so he could grab them with his hands and put them in his mouth. 
+I took some of Hayden's favorite toys and hung them from his play gym with [red ribbon](https://amzn.to/3TCSEBJ). That way, they were low enough so he could grab them with his hands and put them in his mouth. 
 
 This setup was also a great way to get him using his feet. 
 
 The objects were low enough for him to kick, which he loved to do! I liked the [Baby Bear Wooden Rattle Shaker](https://www.bellalunatoys.com/collections/waldorf-baby-toys-0-12-months/products/green-tones-baby-bear-shaker) for this reason. It was a wide enough target for baby.
 
-**Also consider handing baby an object to explore while he sits in a [baby bouncer](https://amzn.to/3TllWoD)**. This gives him a different angle to grab objects.
+**Also consider handing baby an object to explore while he sits in a [baby bouncer](https://amzn.to/3TllWoD)**. This gives him a different angle to grab and exploreobjects.
 
 #### **Suggested Items**:
 
@@ -353,13 +353,13 @@ Use props to make tummy time fun!
 
 ![Tummy time with mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
-**Mirrors are also a lot of fun for babies**. They love to look at themselves! So place baby on his tummy and prop up a mirror in front of him. 
+**Mirrors are also a lot of fun for babies**. So place baby on his tummy and prop up a mirror in front of him. 
 
 I also found it useful to **prop up pictures of artwork or baby animals** for him to look at during tummy time. I got these pictures from daily calendars ([Art Page-A-Day Gallery Calendar](https://amzn.to/3MPfB2u) and [](https://www.amazon.com/Baby-Animals-Calendar-Daily-Desktop/dp/1549220322/ref=sr_1_1?crid=1M5S4L6YI09X3&keywords=Baby+Animals+2022+Box+Calendar&qid=1662978858&sprefix=baby+animals+2022+box+calendar+%2Caps%2C92&sr=8-1)[Baby Animals 2022 Box Calendar](https://amzn.to/3EWUPMi)). I’d select a few pictures and place them in front of him, which he absolutely loved.
 
 **Mobiles were another favorite** tummy time item. 
 
-Get baby on his belly, then dangle the mobile in front of baby or to the side. Babies love mobiles, and provide the motivation to lift that heavy head!
+Get baby on his belly, then dangle the mobile in front of baby or to the side. Baby will love it!
 
 ![Tummy time with toys](/img/screen-shot-2022-10-06-at-8.59.15-pm.png)
 
@@ -433,7 +433,7 @@ Measuring cups
 
 ![ Baby looking into mirror](/img/screen-shot-2022-10-06-at-7.23.30-pm.png)
 
-Babies love looking at themselves in the mirror! 
+Babies love looking in the mirror! 
 
 Let me share my favorite way to incorporate mirror time. 
 
@@ -537,7 +537,7 @@ To break it up, I’d often **incorporate a game of peek-a-boo**. I’d put a sm
 
 ![Record player](/img/adrian-korte-5gn2soeac40-unsplash.jpg)
 
-**Turn on some beautiful music and listen for a few minutes**. I like to expose my baby to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
+**Turn on some beautiful music and listen for a few minutes**. I like to expose Hayden to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
 
 We also liked to “dance.” I’d hold Hayden and we’d just sway to the beat. 
 
@@ -562,7 +562,7 @@ Make time for nature. **Simply stand in front of a window and look outside, and 
 
 On more than one occasion, I’d hold Hayden in front of a window studying a bug attached to the screen from outside. He’d be transfixed. 
 
-Better yet, **step outside and see -- and experience -- nature first hand**. I liked to hold my baby and walk around our backyard, narrating what I saw and heard, as he took in this different environment. 
+Better yet, **step outside and see -- and experience -- nature first hand**. I liked to hold Hayden and walk around our backyard, narrating what I saw and heard, as he took in this different environment. 
 
 Point out the sights and sounds you’re experiencing. For example, “I hear the birds chirping.” Or “do you feel the breeze?!” 
 
