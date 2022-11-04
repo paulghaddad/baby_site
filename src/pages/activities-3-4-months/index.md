@@ -195,8 +195,6 @@ Since they’re such a hit, I keep bubbles easily accessible: in the car, stroll
 
 ## 9. Get those hands moving
 
-![Hands](/img/screen-shot-2022-10-06-at-9.23.16-pm.png)
-
 Want to get baby some practice using their hands? Give these ideas a try.
 
 **Put a cloth, like a washcloth, on baby’s foot**, and he’ll work hard to pull it off. Once he’s mastered this, you **do the same game with a small oven mitt**: stick the mitt on his foot and baby will pull it off. 
@@ -272,8 +270,6 @@ I’d continue the same process with shirts, pants, socks, and anything else tha
 To break it up, I’d often **incorporate a game of peek-a-boo**. I’d put a small towel over his face or mine, and he’d pull it off. This would result in giggles, lots of giggles.
 
 ## 13. Sing and Dance
-
-![Record player](/img/adrian-korte-5gn2soeac40-unsplash.jpg)
 
 **Turn on some beautiful music and listen for a few minutes**. I like to expose Hayden to a range of music, and we talk about it. “Do you hear the drums?” Or “I hear a piano and flute.”
 
