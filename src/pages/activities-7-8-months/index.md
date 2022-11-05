@@ -557,7 +557,7 @@ Suggested Books:**
 
 [Where’s Spot?](https://amzn.to/3SHwFbQ) by Eric Hill
 
-## 25. Transform everyday objects
+## 25. Transform everyday things
 
 ![activities for babies - exploring everyday objects](/img/activities-for-babies-exploring-everyday-objects.jpeg)
 
