@@ -145,7 +145,7 @@ Cookie sheet 
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-## 7. Laundry basket fun  **(3 ideas to try)**
+## 7. Laundry basket fun **(3 ideas to try)**
 
 ![Activities for babies - sitting in a laundry basket ](/img/activities-for-babies-laundry-basket-fun-1-.jpeg)
 
