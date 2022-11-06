@@ -13,7 +13,7 @@ I’m Amy, and I’m a writer and programmer turned stay-at-home mom. I’d repe
 
 ![baby smiling](/img/02704a92-c1b3-49b9-878e-fd605b9354ef-1-.jpeg "baby smiling")
 
-It provides **simple and easy activities organized by age**. I incorporate a little bit of everything: art, nature, sensory play, music, reading, and cooking. I also include the supplies you need and where you can buy them for each activity. 
+It provides **simple and easy activities organized by age**. I incorporate a little bit of everything: art, nature, sensory play, music, reading, and cooking. I also include the supplies you need and where you can buy them for each activity.
 
 I’ll continue to add content for older babies and toddlers over time. So sign up for [my newsletter](https://www.learningbabies.com/newsletter) for updates, as well as practical child development ideas.
 
