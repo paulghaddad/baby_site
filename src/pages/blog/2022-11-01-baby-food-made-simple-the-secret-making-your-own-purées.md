@@ -3,7 +3,7 @@ templateKey: blog-post
 title: "Baby Food Made Simple: The Secret Making your Own Purées"
 date: 2022-11-01T13:26:04.458Z
 description: "How to get baby started on solids: make purées for baby"
-featuredpost: true
+featuredpost: false
 featuredimage: /img/baby-food-made-simple-the-secret-making-your-own-purées.jpeg
 ---
 I got some blank stares when I told people I was going to make my own purées for Hayden. “That’ll last about a week,” I could hear them thinking. 
