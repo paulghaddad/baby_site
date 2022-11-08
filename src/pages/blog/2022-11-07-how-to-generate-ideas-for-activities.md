@@ -6,7 +6,7 @@ description: Use simple toys and objects to create fun, engaging activities for 
 featuredpost: true
 featuredimage: /img/acitivites-for-babies-ball.jpeg
 ---
-Simple toys and objects make playtime a blast. 
+Creating activities for babies is easier than you think. 
 
 I placed an empty laundry basket and a tennis ball on the floor in Hayden’s playroom. I was watching from about two feet away when something interesting happened. 
 
@@ -48,18 +48,34 @@ He did this, too.
 
 He did, but it proved to be more of a challenge.
 
-And so it goes with nearly every activity we do together. One simple “what if …” question leads to another, and another. It’s the best way to generate ideas. 
+And so it goes with nearly every activity we do together. One simple “what if …” question leads to another, and another. It’s a great way to generate ideas.
 
-## Keep It Simple
+## What’s Baby Interested In?
 
-The simpler the toy or object, the better when asking “what if . . .” questions. **Simple toys and objects can take on a variety of uses**. Whereas complex toys usually have a single use value or purpose.  
 
-Take a shoe box as an example. The first time I introduced a shoe box to Hayden, he was interested in -- and challenged by -- lifting the lid. Then, I filled the box with balls and he opened the lid and pulled out the balls. 
 
-![activities for babies - stack on box](/img/activities-for-babies-stack-on-box.jpeg)
+Another way to think of ideas is to give baby [unstructured play time](https://www.learningbabies.com/blog/2022-10-03-babies-need-unstructured-playtime-too/). Put a few toys or objects out and sit back and watch. See what baby gravitates toward and spends his time. 
 
-Then, I put a ball on top of the box, and he delighted in rolling it off. Then, I made a tower for him to knock down, which consisted of the shoe box, another empty box, and a ball on the very top. He delighted in knocking the ball off. Then, I cut a hole in the top of the box so he could drop a ball through it. 
 
-**I made these iterations by asking myself “what if …” along the way**. Because a shoe box is so simple, it’s served many different purposes during playtime. 
 
-You have much more freedom with simple toys and objects; you’re often constrained with complex ones. That’s why real world, every day objects, like a tennis ball and laundry basket, are great for play time. **Keep it simple. Keep it real. And ask “what if …” questions. The possibilities are endless**.
+**Unstructured play time will reveal baby’s interests**. Then, use your observations to create fun activities for baby. Use “what if …?” questions to iterate on the activities you come up with.
+
+
+
+Hayden always gravitated toward his [object permanence box](https://amzn.to/3Dek3n1) toy, where he’d drop a ball in the circular hole and it’d roll back out to him, during unstructured play time. So I iterated on it. I created a little basketball hoop for him to drop the ball through. 
+
+
+
+He loved it. 
+
+
+
+So I iterated on it again by asking: what if I cut the bottom out of a cylinder-shaped bread crumbs container? Then, Hayden could drop a ball or small block through the hole. 
+
+
+
+This, too, was a hit.
+
+
+
+It’s not too surprising, either. People -- including babies -- are more engaged with things and activities that they’re interested in. Once you know this, then iterate on it by asking “what if ..?” questions and you’ll have a surplus of activities to try.
