@@ -7,7 +7,7 @@ As a first-time mom, I’ve found myself repeatedly asking this question: what t
 
 So I’ve organized some toys that I’ve used for Hayden by age.  
 
-Oftentimes a toy you purchase for a two month old can be reused in a different way for a four month old.    [activities](https://www.learningbabies.com/activities) section of this website to see how you can put these items to use.
+Oftentimes a toy you purchase for a two month old can be reused in a different way for a four month old.     [activities](https://www.learningbabies.com/activities) section of this website to see how you can put these items to use.
 
 ### 0-12 weeks
 
