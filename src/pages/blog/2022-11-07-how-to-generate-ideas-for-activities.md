@@ -52,30 +52,19 @@ And so it goes with nearly every activity we do together. One simple “what if 
 
 ## What’s Baby Interested In?
 
+Another way to think of ideas is to give baby [unstructured play time](https://www.learningbabies.com/blog/2022-10-03-babies-need-unstructured-playtime-too/). This is a great way to reveal baby’s interests.
 
+\
+Put a few toys or objects out and sit back and watch. See what baby gravitates toward and spends his time. Then, use your observations to create fun activities for baby. Use “what if …?” questions to iterate on the activities you come up with.
 
-Another way to think of ideas is to give baby [unstructured play time](https://www.learningbabies.com/blog/2022-10-03-babies-need-unstructured-playtime-too/). Put a few toys or objects out and sit back and watch. See what baby gravitates toward and spends his time. 
+![activities for babies - playing basketball](/img/activities-for-babies-basketball-2.jpeg)
 
-
-
-**Unstructured play time will reveal baby’s interests**. Then, use your observations to create fun activities for baby. Use “what if …?” questions to iterate on the activities you come up with.
-
-
-
-Hayden always gravitated toward his [object permanence box](https://amzn.to/3Dek3n1) toy, where he’d drop a ball in the circular hole and it’d roll back out to him, during unstructured play time. So I iterated on it. I created a little basketball hoop for him to drop the ball through. 
-
-
+Hayden always gravitated toward his [object permanence box](https://amzn.to/3Dek3n1) toy, where he’d drop a ball in the circular hole and it’d roll back out to him, during unstructured play time. So I iterated on it. I created a little [basketball hoop](https://www.learningbabies.com/activities-7-8-months) for him to drop the ball through. 
 
 He loved it. 
 
-
-
 So I iterated on it again by asking: what if I cut the bottom out of a cylinder-shaped bread crumbs container? Then, Hayden could drop a ball or small block through the hole. 
-
-
 
 This, too, was a hit.
 
-
-
-It’s not too surprising, either. People -- including babies -- are more engaged with things and activities that they’re interested in. Once you know this, then iterate on it by asking “what if ..?” questions and you’ll have a surplus of activities to try.
+It’s not too surprising, either. **People -- including babies -- are more engaged with things and activities that they’re interested in**. Once you know this, then iterate on it by asking “what if ..?” questions and you’ll have a surplus of activities to try.
