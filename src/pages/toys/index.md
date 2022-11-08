@@ -3,11 +3,13 @@ templateKey: toys-page
 path: /toys
 title: Toys for Baby
 ---
-As a first-time mom, I’ve found myself repeatedly asking this question: what toys should I introduce to Hayden, when, and where can I buy them? 
+I try to incorporate real world objects, from measuring cups to shoe boxes, into playtime as much as possible. But toys are also fun and useful to have around. 
 
-So I’ve organized some toys that I’ve used for Hayden by age.  
+What toys should you introduce to baby, when, and where can you buy them?
 
-   [activities](https://www.learningbabies.com/activities) section of this website to see how you can put these items to use.
+This is a question I’ve asked myself. So I’ve organized some toys that I’ve used for Hayden by age.  
+
+
 
 ### 0-12 weeks
 
