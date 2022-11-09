@@ -16,13 +16,13 @@ How does a mama help make that happen?!
 
 I﻿'m not sure there's one right answer, but let me share what I’m doing -- and it doesn't involve hacks or tricks. Rather it's a different attitude. 
 
-I think of mealtime as a learning opportunity. It’s an educational experience. And I’m convinced this is the reason why Hayden loves to try new foods, and devours a range of fruits and veggies and meals like lentil soup, garlic chicken, and black bean chili. 
+**I think of mealtime as a learning opportunity. It’s an educational experience**. And I’m convinced this is the reason why Hayden loves to try new foods, and devours a range of fruits and veggies and meals like lentil soup, garlic chicken, and black bean chili. 
 
 When I recently introduced cauliflower to Hayden, I dipped a spoon into the puree and let him smell it. He took a small taste and paused. 
 
 After a moment, he smiled and lifted his arms up and down excitedly. He wanted more. 
 
-As the meal went on, I spoke about the taste, texture, and color of the cauliflower and how it was prepared. I asked Hayden questions, and waited for him to babble a response back. I gauged his body language, knowing when he’s had enough or wanted more.
+As the meal went on, I spoke about the taste, texture, and color of the cauliflower and how it was prepared. I asked Hayden questions, and waited for him to babble a response back. I gauged his body language, knowing when he had enough or wanted more.
 
 And this is how mealtime goes. 
 
