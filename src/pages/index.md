@@ -3,7 +3,7 @@ templateKey: index-page
 title: Learn by playing
 image: /img/img_9297.jpeg
 heading: delete
-subheading: Activities, books, and toys for babies
+subheading: "Back to basics: simple activities for babies"
 mainpitch:
   title: delete
   description: delete
