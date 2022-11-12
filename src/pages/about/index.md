@@ -15,6 +15,8 @@ Learning Babies goes **back to basics** by using simple toys and real world obje
 
 I’ll continue to add content for older babies over time. So sign up for [my newsletter](https://www.learningbabies.com/newsletter) for updates and practical child development ideas. ﻿
 
-E﻿mail me at: amy@amymhaddad.com.
+### **Let’s connect!**
+
+Find me on [Facebook](https://www.facebook.com/amy.LearningBabies/) and [Pinterest](https://www.pinterest.com/amymhaddad/). Or e-mail me at: amy@amymhaddad.com.
 
 ![baby smiling](/img/02704a92-c1b3-49b9-878e-fd605b9354ef-1-.jpeg "baby smiling")
