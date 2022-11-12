@@ -3,6 +3,7 @@ import { Link } from "gatsby";
 
 import logo from "../img/logo.svg";
 import pinterest from "../img/social/pinterest.svg";
+import facebook from "../img/social/facebook.svg";
 
 const Footer = () => {
 
@@ -66,6 +67,13 @@ const Footer = () => {
                 </section>
               </div>
               <div className="column is-4 social">
+                <a title="facebook" href="https://www.facebook.com/amy.LearningBabies">
+                  <img
+                    src={facebook}
+                    alt="Facebook"
+                    style={{ width: "1em", height: "1em" }}
+                  />
+                </a>
                 <a title="pinterest" href="https://pinterest.com/amyhaddad11">
                   <img
                     src={pinterest}

@@ -1,6 +1,7 @@
 import React, { useState } from "react";
 import { Link } from "gatsby";
 import pinterest from "../img/social/pinterest.svg";
+import facebook from "../img/social/facebook.svg";
 import logo from "../img/logo.svg";
 
 const Navbar = () => {
@@ -63,16 +64,26 @@ const Navbar = () => {
                 Blog
               </Link>
             </li>
-          <li className="navbar-end has-text-centered">
-            <a
-              className="navbar-item"
-              href="https://pinterest.com/amyhaddad11"
-            >
-              <span className="icon">
-                <img src={pinterest} alt="Pinterest" />
-              </span>
-            </a>
-          </li>
+            <li className="navbar-end has-text-centered">
+              <a
+                className="navbar-item"
+                href="https://www.facebook.com/amy.LearningBabies/"
+              >
+                <span className="icon">
+                  <img src={facebook} alt="Facebook" />
+                </span>
+              </a>
+            </li>
+            <li className="navbar-end has-text-centered pinterest">
+              <a
+                className="navbar-item"
+                href="https://pinterest.com/amyhaddad11"
+              >
+                <span className="icon">
+                  <img src={pinterest} alt="Pinterest" />
+                </span>
+              </a>
+            </li>
         </ul>
       </div>
     </nav>
