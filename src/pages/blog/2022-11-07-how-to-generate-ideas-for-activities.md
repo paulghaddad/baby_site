@@ -3,7 +3,7 @@ templateKey: blog-post
 title: How to Generate Ideas for Activities
 date: 2022-11-07T13:30:34.547Z
 description: Use simple toys and objects to create fun, engaging activities for babies.
-featuredpost: true
+featuredpost: false
 featuredimage: /img/acitivites-for-babies-ball.jpeg
 ---
 Creating activities for babies is easier than you think. 
