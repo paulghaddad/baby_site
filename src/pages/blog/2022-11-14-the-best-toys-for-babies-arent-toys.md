@@ -13,9 +13,9 @@ The best toys for babies aren’t toys. **They’re real world objects and thing
 
 ![activities for babies - nature exploration ](/img/activities-for-babies-nature-corner.jpeg)
 
-The same is true with things from nature. Hayden is equally fascinated by rocks, shells, and pine cones, among other things from nature. 
+Hayden is equally fascinated by rocks, shells, and pine cones, among other things from nature. 
 
-Once again, he’ll sit for 15 to 20 minutes at a time exploring: running his fingers along the ridges of a shell; inspecting the stem of a pumpkin; touching a prickly pine cone. He’s also picking up some useful skills, like stacking. 
+Once again, he’ll sit for periods of time exploring: running his fingers along the ridges of a shell; inspecting the stem of a pumpkin; touching a prickly pine cone. He’s also picking up some useful skills, like stacking. 
 
 This morning he picked up a Jack Be Little pumpkin and stacked it on top of a bigger pumpkin without a stem. He proceeded to knock down the stack. Then, he worked on stacking them up again.  
 
