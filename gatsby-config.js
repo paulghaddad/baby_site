@@ -1,8 +1,7 @@
 module.exports = {
   siteMetadata: {
     title: "Learning Babies",
-    description:
-      "This site shows you activities for your baby at various ages.",
+    description: "Back to Basics: Simple Activities for Babies",
   },
   plugins: [
     "gatsby-plugin-react-helmet",
