@@ -43,6 +43,11 @@ const Footer = () => {
                       </Link>
                     </li>
                     <li>
+                      <Link className="navbar-item" to="/parent-resources">
+                        Parent Resources
+                      </Link>
+                    </li>
+                    <li>
                       <Link className="navbar-item" to="/baby-log">
                         Baby Log
                       </Link>
