@@ -13,6 +13,7 @@ import BooksPagePreview from './preview-templates/BooksPagePreview'
 import ToysPagePreview from './preview-templates/ToysPagePreview'
 import BabyLogPagePreview from './preview-templates/BabyLogPagePreview'
 import NewsletterPagePreview from './preview-templates/NewsletterPagePreview'
+import ParentResourcesPagePreview from './preview-templates/ParentResourcesPagePreview'
 import IndexPagePreview from './preview-templates/IndexPagePreview'
 
 CMS.registerMediaLibrary(uploadcare)
@@ -30,3 +31,4 @@ CMS.registerPreviewTemplate('toys', ToysPagePreview)
 CMS.registerPreviewTemplate('baby-log', BabyLogPagePreview)
 CMS.registerPreviewTemplate('newsletter',NewsletterPagePreview)
 CMS.registerPreviewTemplate('blog', BlogPostPreview)
+CMS.registerPreviewTemplate('parent-resources', ParentResourcesPostPreview)
