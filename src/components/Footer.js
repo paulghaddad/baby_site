@@ -67,7 +67,7 @@ const Footer = () => {
                 </section>
               </div>
               <div className="column is-4 social">
-                <a title="facebook" href="https://www.facebook.com/amy.LearningBabies">
+                <a title="facebook" href="https://www.facebook.com/amyhaddad.LearningBabies">
                   <img
                     src={facebook}
                     alt="Facebook"

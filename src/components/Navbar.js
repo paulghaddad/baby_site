@@ -29,61 +29,66 @@ const Navbar = () => {
             <span />
           </button>
         </div>
-        <ul id="navMenu" className={` navbar-start has-text-centered navbar-menu ${isActive && "is-active"}`}>
-            {/* TODO: inline override of padding is a result of refactoring
+        <ul
+          id="navMenu"
+          className={` navbar-start has-text-centered navbar-menu ${
+            isActive && "is-active"
+          }`}
+        >
+          {/* TODO: inline override of padding is a result of refactoring
                 to a ul for accessibilty purposes, would like to see a css
                 re-write that makes this unneccesary.
              */}
-            <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/about">
-                About
-              </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/books">
-                Books
-              </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/toys">
-                Toys
-              </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/parent-resources">
-                Parent Resources
-              </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="/baby-log">
-                Baby Log
-              </Link>
-            </li>
-            <li className="navbar-item" style={{padding: "0px"}}>
-              <Link className="navbar-item" to="https://entrepreneurialmom.substack.com/">
-                  Newsletter
-              </Link>
-            </li>
-            <li className="navbar-end has-text-centered">
-              <a
-                className="navbar-item"
-                href="https://www.facebook.com/amy.LearningBabies/"
-              >
-                <span className="icon">
-                  <img src={facebook} alt="Facebook" />
-                </span>
-              </a>
-            </li>
-            <li className="navbar-end has-text-centered pinterest">
-              <a
-                className="navbar-item"
-                href="https://pinterest.com/amyhaddad11"
-              >
-                <span className="icon">
-                  <img src={pinterest} alt="Pinterest" />
-                </span>
-              </a>
-            </li>
+          <li className="navbar-item" style={{ padding: "0px" }}>
+            <Link className="navbar-item" to="/about">
+              About
+            </Link>
+          </li>
+          <li className="navbar-item" style={{ padding: "0px" }}>
+            <Link className="navbar-item" to="/books">
+              Books
+            </Link>
+          </li>
+          <li className="navbar-item" style={{ padding: "0px" }}>
+            <Link className="navbar-item" to="/toys">
+              Toys
+            </Link>
+          </li>
+          <li className="navbar-item" style={{ padding: "0px" }}>
+            <Link className="navbar-item" to="/parent-resources">
+              Parent Resources
+            </Link>
+          </li>
+          <li className="navbar-item" style={{ padding: "0px" }}>
+            <Link className="navbar-item" to="/baby-log">
+              Baby Log
+            </Link>
+          </li>
+          <li className="navbar-item" style={{ padding: "0px" }}>
+            <Link
+              className="navbar-item"
+              to="https://entrepreneurialmom.substack.com/"
+            >
+              Newsletter
+            </Link>
+          </li>
+          <li className="navbar-end has-text-centered">
+            <a
+              className="navbar-item"
+              href="https://www.facebook.com/amyhaddad.LearningBabies/"
+            >
+              <span className="icon">
+                <img src={facebook} alt="Facebook" />
+              </span>
+            </a>
+          </li>
+          <li className="navbar-end has-text-centered pinterest">
+            <a className="navbar-item" href="https://pinterest.com/amyhaddad11">
+              <span className="icon">
+                <img src={pinterest} alt="Pinterest" />
+              </span>
+            </a>
+          </li>
         </ul>
       </div>
     </nav>
