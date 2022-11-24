@@ -67,7 +67,7 @@ const Navbar = () => {
           <li className="navbar-item" style={{ padding: "0px" }}>
             <Link
               className="navbar-item"
-              to="https://entrepreneurialmom.substack.com/"
+              to="https://entrepreneurialparent.substack.com/"
             >
               Newsletter
             </Link>
