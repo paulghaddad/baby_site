@@ -3,7 +3,6 @@ templateKey: about-page
 path: /about
 title: Welcome to Learning Babies!
 ---
-
 Do you have a little one and wonder what activities to use as your baby grows?
 
 I get it!
@@ -14,7 +13,7 @@ So I created Learning Babies. It provides **simple, easy, and inexpensive activi
 
 Learning Babies goes **back to basics** by using simple toys and real world objects. (A ball and shoe box can be educational and loads of fun!) **Simple activities means endless possibilities. Let creativity thrive!**
 
-I’ll continue to add content for older babies over time. So sign up for [my newsletter](https://www.learningbabies.com/newsletter) for updates and practical child development ideas.
+I’ll continue to add content for older babies over time. So sign up for [my newsletter](https://entrepreneurialparent.substack.com/) for updates and practical child development ideas.
 
 ### **Let’s connect!**
 
