@@ -27,7 +27,7 @@ I also filled the sponge with water and lifted my hand high above the bin. Then,
 
 
 
-Suggested Items:
+### Suggested Items:
 
 [Sea sponge](https://kytebaby.com/products/sea-sponge)
 
@@ -35,7 +35,7 @@ Bin of water
 
 
 
-2. Fun with gelatin
+# 2. Fun with gelatin
 
 This sensory activity was such a hit! I made gelatin for Hayden one evening once he went to bed. We explored it the next day and had a blast.
 
@@ -55,23 +55,19 @@ He just poked at it initially. Then, he grabbed a chunk, felt it squish in his h
 
 Overall, it was a ton of fun!
 
-
-
-Suggested Items:
+### Suggested Items:
 
 [Unflavored gelatine](https://amzn.to/3B1rDRx)
 
 [Baby food ice cube tray](https://amzn.to/3VIKn09)
 
+# 3. Edible play dough (with oats)
 
-
-3. Edible playdough (with oats)
-
-I loved playing with playdough as a kid, and was thrilled when I [came across a recipe](https://www.thelifeofjenniferdawn.com/2010/08/oatmeal-playdough.html) for homemade playdough that’s suitable for babies!
+I loved playing with play dough as a kid, and was thrilled when I [came across a recipe](https://www.thelifeofjenniferdawn.com/2010/08/oatmeal-playdough.html) for homemade play dough that’s suitable for babies!
 
 
 
-The fun began with Hayden helping me make the playdough, which contains three simple (baby friendly) ingredients: oats, water, flour. I filled a measuring cup with oats and Hayden “helped” me dump it into the bowl. 
+The fun began with Hayden helping me make the play dough, which contains three simple (baby friendly) ingredients: oats, water, flour. I filled a measuring cup with oats and Hayden “helped” me dump it into the bowl. 
 
 
 
@@ -87,7 +83,7 @@ I recommend doing this activity on an old blanket or bed sheet. Then, pop it in 
 
 
 
-Suggested Items:
+### Suggested Items:
 
 [Rolled oats](https://amzn.to/3uewQSa)
 
@@ -97,7 +93,7 @@ Bowl
 
 
 
-4. Fun with tape and other stuff
+# 4. Fun with tape and other stuff
 
 I’m a huge fan of using simple, everyday items with baby. That’s because you have much more freedom with simple toys and objects; you’re often constrained with complex ones.
 
@@ -123,13 +119,15 @@ Simple. Fun. Educational.
 
 
 
-Suggested Items:
+### Suggested Items:
 
 [Painter’s tape](https://amzn.to/3uh7P8Z)
 
+[Plastic balls](https://amzn.to/3gOy8A4)
 
 
-5. Splish Splash
+
+# 5. Splish Splash
 
 Here’s a fun sensory experience for baby: put some water on a cookie sheet and put a few objects, like measuring cups, on top. Or you can fill a small plastic bin with water. 
 
@@ -151,7 +149,7 @@ Once baby learns he can splash, you’ll likely find that water goes everywhere.
 
 
 
-Suggested Items:
+### Suggested Items:
 
 Cookie sheet
 
@@ -161,7 +159,7 @@ Measuring cups
 
 
 
-6. Water Art
+# 6. Water Art
 
 Water art is simple but a lot of fun!
 
@@ -179,7 +177,7 @@ It’s fun to make hand prints, too. You can also use [large art brushes](https:
 
  
 
-Suggested Items:
+### Suggested Items:
 
 [Paper bowls](https://amzn.to/3VHUy62)
 
@@ -187,7 +185,7 @@ Suggested Items:
 
 [Jumbo Children's Tempera Artist Paint Brushes](https://amzn.to/3CNmj4t)
 
-7. Finger Paint (with taste safe paint)
+# 7. Finger Paint (with taste safe paint)
 
 I like [this simple recipe](https://rainydaymum.co.uk/baby-play-finger-painting/) to make homemade finger paint (that's taste safe), though I opted for [plant-based food coloring](https://amzn.to/3sfeKys).
 
@@ -201,7 +199,7 @@ You can also put some paint into a Ziplock bag and have baby squish the paint th
 
 To keep things relatively clean, put baby in a [mess-proof bib](https://amzn.to/3F2MzKP).
 
-Suggested Items:
+### Suggested Items:
 
 [Paper bowls](https://amzn.to/3VHUy62)
 
@@ -217,7 +215,7 @@ Suggested Items:
 
 
 
-7. Sensory boxes: touch, feel, pull
+# 7. Sensory boxes: touch, feel, pull
 
 Help baby develop his senses by creating sensory boxes, using everyday items from home. 
 
@@ -229,11 +227,11 @@ It’s fun to create themed sensory boxes. Just take a small box or basket and f
 
 Here are some sensory box ideas to consider:
 
-* Kitchen box, which can include an oven mit, spoon (for eating), wooden spoon,  spatula, whisk, and placemat.
-* Bathroom box, which can include a roll of toilet paper, toothbrush, floss container, loofa, and a box of tissues.
-* Soft-items box, which can include a loofa, pair of socks, wash cloth, and towel.
-* Ball box, which contains toy balls of different colors, shapes, and textures.
-* Toy box, which contains toys and teethers of various colors, shapes, and textures.
+* **Kitchen box**, which can include an oven mit, spoon (for eating), wooden spoon,  spatula, whisk, and placemat.
+* **Bathroom box**, which can include a roll of toilet paper, toothbrush, floss container, loofa, and a box of tissues.
+* **Soft-items box**, which can include a loofa, pair of socks, wash cloth, and towel.
+* **Ball box**, which contains toy balls of different colors, shapes, and textures.
+* **Toy box**, which contains toys and teethers of various colors, shapes, and textures.
 
 
 
@@ -245,7 +243,7 @@ Babies love to empty a box full of things. They’ll have as much fun pulling ev
 
 
 
-8. Spice it up!
+# 8. Spice it up!
 
 Want a great way to introduce baby into the world of food and enliven their sense of smell?!
 
@@ -271,11 +269,9 @@ Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work gre
 
 
 
-9. Chef Baby
+# 9. Chef Baby
 
 Involve baby with some basic recipes. 
-
-
 
 Hayden has “helped” me make several of his purées. We made a banana puree together, for example, and it was a lot of fun. 
 
@@ -287,17 +283,7 @@ He sat in his high chair and I sat next to him at the kitchen table. I showed hi
 
 He watched enthusiastically as I sliced the bananas and placed them in the food processor. Once it was smooth, I gave him a small taste. 
 
-
-
-We also bake regularly. Although he’s not eating things like pumpkin bread or apple spice cake yet, he loves to be part of the process. 
-
-
-
-So we sit at the kitchen table and work on a recipe together. I’ll fill a measuring spoon with a spice. He’ll smell it and help me dump it into the bowl. He’ll help me pour the flour, sugar, and any other ingredients into the bowl as well. He then loves to help mix everything together with a spatula. 
-
-
-
-10. Experiment with rolled oats
+# 10. Experiment with rolled oats
 
 Pour some [rolled oats](https://amzn.to/3fgkJQH) into a bowl and sit with baby on the floor to explore them. This is one of Hayden’s favorite activities!
 
@@ -313,7 +299,7 @@ You can add yet another texture to this activity by blending some rolled oats in
 
 
 
-Suggested Items:
+### Suggested Items:
 
 Rolled oats
 
@@ -321,7 +307,7 @@ Large bowl
 
 
 
-11. Ice cubes on a baking sheet
+# 11. Ice cubes on a baking sheet
 
 Put some ice cubes on a cookie sheet or pan and let baby explore. It’s so simple, but so fascinating to baby!
 
@@ -333,7 +319,7 @@ This activity is great for hand-eye coordination. The cubes glide quickly across
 
 I made my own ice cubes by freezing water in a [freezer tray](https://www.amazon.com/gp/product/B00T6ZG9AA?ie=UTF8&psc=1&linkCode=sl1&tag=learningbabie-20&linkId=a954816a189bde1f12d179e2842703da&language=en_US&ref_=as_li_ss_tl) that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
 
-Suggested Items:
+### Suggested Items:
 
 Ice cubes
 
@@ -357,7 +343,7 @@ Measuring cups are one of my favorite water time objects to use with Hayden. It�
 
 So much fun -- for mommy and baby!
 
-Suggested items:
+### Suggested items:
 
 Storage bin or small basin
 
@@ -367,7 +353,7 @@ Measuring cups
 
 
 
-13. Warm vs cold: ice cubes in warm water
+# 13. Warm vs cold: ice cubes in warm water
 
 Help baby learn about warm versus cold with this simple activity.
 
@@ -381,7 +367,7 @@ Then, help baby pick up an ice cube and plop it into the warm water. Have him to
 
 I’ve also done this activity by adding a third container: one filled with cool water. Feel the temperature gradations (warm, cool, cold). See what happens when baby drops ice cubes into cool water compared to warm water. 
 
-Suggested items:
+### Suggested items:
 
 2 small containers or bowls
 
@@ -389,7 +375,7 @@ Ice cubes
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-14. Bake me a cake!
+# 14. Bake me a cake!
 
 This is such a fun age to bake with baby! Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
@@ -403,11 +389,11 @@ After all of the ingredients are together, he’ll help me mix everything togeth
 
 It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
 
-Suggested items:
+### Suggested items:
 
 Simple recipes and a dose of patience!
 
-15. Lemon soup
+# 15. Lemon soup
 
 This activity combines two things Hayden loves: water and kitchen supplies. 
 
@@ -421,7 +407,7 @@ Then, we dropped each one into the water (splash!) and stirred them around in th
 
 Fish out the lemons with the measuring cups and do it again to baby’s delight!
 
-Suggested items:
+### Suggested items:
 
 Measuring cups
 
@@ -433,7 +419,7 @@ Pot
 
 Colander of lemons 
 
-16. Ball grab
+# 16. Ball grab
 
 This ball grab activity is not only fun (after all, water is involved!). But it’s also great for hand-eye coordination. 
 
@@ -447,13 +433,13 @@ Dropping a single ball was so much fun for Hayden that I took several balls and 
 
 Tip: put towel under basin of water. 
 
-Suggested Items:
+### Suggested Items:
 
 [Plastic balls](https://amzn.to/3gOy8A4)
 
 Small basin or storage container
 
-17. Play with goo 
+# 17. Play with goo 
 
 This two-ingredient recipe -- [cornstarch](https://amzn.to/3U4hxXa) and water -- resulted in a ton of fun for baby and mommy! Plus, the set up is minimal: drizzle some water into a bowl of cornstarch.
 
@@ -471,7 +457,7 @@ As he explored, goo got on his clothes, arms and legs. He loved it! So I got in 
 
 I admit, this activity can get messy. That’s why I recommend putting a sheet down underneath the materials to contain the mess. Then, drop the sheet into the wash after the activity is done (and stick baby in the bath!).
 
-Suggested Items:
+### Suggested Items:
 
 [Cornstarch](https://amzn.to/3U4hxXa) 
 
@@ -481,7 +467,7 @@ Sheet 
 
 Water
 
-18. Transform everyday things
+# 18. Transform everyday things
 
 This activity was such a hit with Hayden. Once again it’s an activity geared around real world objects, and once again he was completely engrossed!
 
@@ -501,7 +487,7 @@ I took one half and made a ball with the material. So we had a ball of aluminum 
 
 Finally, I opened up each ball so Hayden could feel the wrinkled parchment paper, for example, and compared it to the other half that was still smooth.
 
-Suggested items:
+### Suggested items:
 
 Aluminum foil
 
@@ -513,7 +499,7 @@ Napkin 
 
 
 
-19. Kitchen exploration
+# 19. Kitchen exploration
 
 Hayden and I have been exploring things in the kitchen for months. When he was about three to four months old, we began exploring items in the kitchen. I’d wash a colander of fruit and veggies and we’d explore them together. We’d also explore kitchen supplies, like measuring cups, as well as a whisk, spatula, and spoon, among others.
 
@@ -533,7 +519,7 @@ Then, I cut large pieces of each item to engage his senses in a different way. I
 
 And so it went. The apple was his favorite, and the onion caught him the most by surprise!
 
-Suggested items:
+### Suggested items:
 
 [Colander](https://amzn.to/3sysdSm)
 
