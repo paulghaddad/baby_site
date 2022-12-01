@@ -69,6 +69,10 @@ Overall, it was a ton of fun!
 
 # 3. Edible play dough (with oats)
 
+I﻿ loved playing with play-doh as a kid. So I was thrilled when I came across a twist on it: [a recipe](https://www.thelifeofjenniferdawn.com/2010/08/oatmeal-playdough.html) for homemade and edible play dough. 
+
+
+
 ![Playing with play dough](/img/img_9935.jpeg)
 
 
@@ -81,11 +85,11 @@ Running his fingers through dried oats is one of Hayden’s favorite sensory act
 
 
 
-The playdough got clumpy. It got sticky. It got a bit messy. But it was a blast! Hayden loved taking clumps of the mixture into his hands and squeezing it. 
+The play dough got clumpy. It got sticky. It got a bit messy. But it was a blast! Hayden loved taking clumps of the mixture into his hands and squeezing it. 
 
 
 
-I recommend doing this activity on an old blanket or bed sheet. Then, pop it in the washer after the activity. 
+I recommend doing this activity on an old blanket or bed sheet. Then, pop it in the washer after the activity. Otherwise, it'll probably get play dough all over the floor as you can see in the picture during our first attempt with this activity.
 
 
 
