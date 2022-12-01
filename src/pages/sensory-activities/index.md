@@ -69,9 +69,7 @@ Overall, it was a ton of fun!
 
 # 3. Edible play dough (with oats)
 
-
-
-I loved playing with play dough as a kid, and was thrilled when I [came across a recipe](https://www.thelifeofjenniferdawn.com/2010/08/oatmeal-playdough.html) for homemade play dough that’s suitable for babies!
+![Playing with play dough](/img/img_9935.jpeg)
 
 
 
