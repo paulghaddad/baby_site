@@ -105,6 +105,8 @@ Bowl
 
 # 4. Fun with tape and other stuff
 
+![Fun with tape ](/img/img_9996.jpeg)
+
 I’m a huge fan of using simple, everyday items with baby. That’s because you have much more freedom with simple toys and objects; you’re often constrained with complex ones.
 
 
@@ -137,7 +139,9 @@ Simple. Fun. Educational.
 
 
 
-# 5. Splish Splash
+# 5. Splish splash water time fun
+
+![Water time fun](/img/img_7258.jpeg)
 
 Here’s a fun sensory experience for baby: put some water on a cookie sheet and put a few objects, like measuring cups, on top. Or you can fill a small plastic bin with water. 
 
@@ -149,7 +153,7 @@ Sit on the floor with baby sitting in front of you. The cookie sheet or bin shou
 
 Baby will love touching the water. He’ll also like seeing how familiar objects move differently in water. 
 
-
+![](/img/img_7250.jpeg)
 
 Measuring cups are a fun choice for this activity. With your help, baby can scoop up some water and pour it out -- hearing (and sometimes feeling!) the splash this makes. 
 
@@ -170,6 +174,8 @@ Measuring cups
 
 
 # 6. Water Art
+
+![Water art](/img/img_9276.jpeg)
 
 Water art is simple but a lot of fun!
 
@@ -196,6 +202,8 @@ It’s fun to make hand prints, too. You can also use [large art brushes](https:
 [Jumbo Children's Tempera Artist Paint Brushes](https://amzn.to/3CNmj4t)
 
 # 7. Finger Paint (with taste safe paint)
+
+![Finger paint with baby](/img/img_9233.jpeg)
 
 I like [this simple recipe](https://rainydaymum.co.uk/baby-play-finger-painting/) to make homemade finger paint (that's taste safe), though I opted for [plant-based food coloring](https://amzn.to/3sfeKys).
 
