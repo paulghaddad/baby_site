@@ -7,9 +7,13 @@ Sensory activities are such a hit for babies! Here are 18 activities to try.
 
 # 1. Sponge time!
 
+![Baby playing with sponge](/img/8619dacd-cff0-4741-a463-4ede48d628c4.jpeg)
+
 I thought it’d be neat to introduce a natural sponge to Hayden. The verdict is in: he loved it! He held it in his hands and turned it around and around, intrigued by the texture, shape, and all of those little holes to stick a finger into!
 
 
+
+![Baby playing with sponge in water](/img/d7ae1809-c6ab-46fe-8695-2bfc1f1c7fd6.jpeg)
 
 Then the real fun began. 
 
@@ -17,7 +21,7 @@ Then the real fun began. 
 
 I filled a small bin with water and dropped the sponge in. He moved it around the water. It eventually got saturated and it sank. So he pulled it out and squeezed the water out of the sponge and onto his lap. This repeated for several times (and he got soaked, but it was okay. It was only water!). 
 
-
+![Baby playing with sponge in water.](/img/9bfffaea-232d-4fef-84ac-51d236869ede.jpeg)
 
 There are a few interesting things you can do during this activity. I squeezed out all of the water from the sponge and balled it up into my hand so he could see how the sponge could change shapes.
 
@@ -36,6 +40,8 @@ Bin of water
 
 
 # 2. Fun with gelatin
+
+![Baby plays with gelatin](/img/5d0059cb-f1e1-4c40-86f6-4e3e7ec15a6d.jpeg)
 
 This sensory activity was such a hit! I made gelatin for Hayden one evening once he went to bed. We explored it the next day and had a blast.
 
@@ -62,6 +68,8 @@ Overall, it was a ton of fun!
 [Baby food ice cube tray](https://amzn.to/3VIKn09)
 
 # 3. Edible play dough (with oats)
+
+
 
 I loved playing with play dough as a kid, and was thrilled when I [came across a recipe](https://www.thelifeofjenniferdawn.com/2010/08/oatmeal-playdough.html) for homemade play dough that’s suitable for babies!
 
