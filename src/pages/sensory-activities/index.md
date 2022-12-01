@@ -3,7 +3,7 @@ templateKey: sensory-activities-page
 path: /sensory-activities
 title: Sensory Activities for Babies
 ---
-Sensory activities are such a hit for babies! Here are 19 activities to try.
+Sensory activities are such a hit for babies! Here are 18 activities to try.
 
 # 1. Sponge time!
 
@@ -269,19 +269,23 @@ Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work gre
 
 
 
-# 9. Chef Baby
+# 9. Bake me a cake!
 
-Involve baby with some basic recipes. 
+Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
-Hayden has “helped” me make several of his purées. We made a banana puree together, for example, and it was a lot of fun. 
+Apple spice cake is one of our favorite recipes. He loves being part of the process. 
 
+He'll smell each ingredient and touch each utensil (the measuring cups and whisk continue to be his favorites!).
 
+He’ll also help me along the way. I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl.
 
-He sat in his high chair and I sat next to him at the kitchen table. I showed him the pile of bananas, as I peeled each one. Then, I let him smell and hold one of the peeled bananas. 
+After all of the ingredients are together, he’ll help me mix everything together. He’ll hold the whisk and I’ll put my hand on top of his. Round and round and round we go until the batter is smooth. 
 
+It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
 
+### Suggested items:
 
-He watched enthusiastically as I sliced the bananas and placed them in the food processor. Once it was smooth, I gave him a small taste. 
+Simple recipes and a dose of patience!
 
 # 10. Experiment with rolled oats
 
@@ -375,25 +379,9 @@ Ice cubes
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-# 14. Bake me a cake!
 
-This is such a fun age to bake with baby! Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
-Apple spice cake is one of our favorite recipes. He loves being part of the process. 
-
-He'll smell each ingredient and touch each utensil (the measuring cups and whisk continue to be his favorites!).
-
-He’ll also help me along the way. I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl.
-
-After all of the ingredients are together, he’ll help me mix everything together. He’ll hold the whisk and I’ll put my hand on top of his. Round and round and round we go until the batter is smooth. 
-
-It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
-
-### Suggested items:
-
-Simple recipes and a dose of patience!
-
-# 15. Lemon soup
+# 14. Lemon soup
 
 This activity combines two things Hayden loves: water and kitchen supplies. 
 
@@ -419,7 +407,7 @@ Pot
 
 Colander of lemons 
 
-# 16. Ball grab
+# 15. Ball grab
 
 This ball grab activity is not only fun (after all, water is involved!). But it’s also great for hand-eye coordination. 
 
@@ -439,7 +427,7 @@ Tip: put towel under basin of water. 
 
 Small basin or storage container
 
-# 17. Play with goo 
+# 16. Play with goo 
 
 This two-ingredient recipe -- [cornstarch](https://amzn.to/3U4hxXa) and water -- resulted in a ton of fun for baby and mommy! Plus, the set up is minimal: drizzle some water into a bowl of cornstarch.
 
@@ -467,7 +455,7 @@ Sheet 
 
 Water
 
-# 18. Transform everyday things
+# 17. Transform everyday things
 
 This activity was such a hit with Hayden. Once again it’s an activity geared around real world objects, and once again he was completely engrossed!
 
@@ -499,7 +487,7 @@ Napkin 
 
 
 
-# 19. Kitchen exploration
+# 18. Kitchen exploration
 
 Hayden and I have been exploring things in the kitchen for months. When he was about three to four months old, we began exploring items in the kitchen. I’d wash a colander of fruit and veggies and we’d explore them together. We’d also explore kitchen supplies, like measuring cups, as well as a whisk, spatula, and spoon, among others.
 
