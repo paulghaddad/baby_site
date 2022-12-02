@@ -650,25 +650,22 @@ Quilts
 
 ![Baby standing ](/img/img_0082.jpeg)
 
-Fetch is one of Hayden’s favorite games. And it’s a good thing, because it’s teaching him some useful things. 
+Fetch is one of Hayden’s favorite games. And it’s a good thing, because it’s teaching him some useful things. \
+\
+Here’s how it works. First, Hayden gets a ball on top of a plastic container and pulls himself up into the standing position. He then rolls the ball off of the container.
 
 ![Baby standing with ball](/img/img_0075.jpeg)
 
-Here’s how it works. First, Hayden gets a ball on top of a plastic container and pulls himself up into the standing position.
-
-He then rolls the ball off of the container.
-
 I help him lower himself back down to the seated position -- a key skill to learn. (It’s one thing to pull yourself up, but quite another to get back down!)
-
-
 
 ![Pick up the ball](/img/img_0071.jpeg)
 
-He practices his balance by leaning over to get the ball. Then, he lifts it back up to the crate and the process begins again and again and again. He loves it!
+He practices his balance, while sitting, by leaning over to get the ball. Then, he lifts it back up to the container and the process begins again and again and again. He loves it!
 
 ### Suggested Items:
 
-Ball
+Ball\
+Object for baby to pull himself up to
 
 # 30. Speed bumps
 
@@ -676,7 +673,7 @@ Ball
 
 Hayden loves a crawling challenge, so we do this activity often. 
 
-I take pillows and fold up a few quilts and lay them across the room. Hayden starts at one end and navigates through the bumps until he reaches the other end, where I place a desired toy or a tower for him to knock down. 
+I take pillows and fold up a few quilts and lay them across the room. Hayden starts at one end and navigates through the “speed bumps” until he reaches the other end, where I place a desired toy or a tower for him to knock down. 
 
 ### Suggested Items:
 
