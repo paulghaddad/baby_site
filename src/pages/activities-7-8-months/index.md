@@ -351,7 +351,7 @@ Baby blankets
 
 Toys
 
-## 15. A crawling challenge
+## 15. Create an obstacle course
 
 ![activities for babies - crawling challenge through blankets](/img/activities-for-babies-crawling-challenge-through-blankets.jpeg)
 
