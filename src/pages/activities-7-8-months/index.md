@@ -634,16 +634,6 @@ Add a challenge to this by adding a second bin. That way you have another hiding
 
 Large plastic bin
 
-# 28. Create an obstacle course
-
-![Obstacle course for baby](/img/img_9852.jpeg)
-
-Give baby a crawling challenge by creating an obstacle course. Put a few pillows on the floor, along with a few towels, blankets, and quilts. You can even make a tunnel for baby to navigate through.
-
-This will give baby a sensory-rich space to crawl through, over, and around. 
-
-Add a tower for baby to knock down, partially hide a toy for baby to find, or turn a plastic container upside down for baby to flip back over. Doing so will motivate him to move through the obstacle course you’ve created, and he’ll have tons of fun in the process!
-
 ### Suggested Items:
 
 Pillows 
