@@ -50,7 +50,7 @@ intro:
       header: Activities for 7-8 month old babies
       url: /activities-7-8-months
       text: |-
-        27 activities to try, including:
+        30 activities to try, including:
         *Basketball for babies
         *Go on a scavenger hunt
         *Experiment with rolled oats 
