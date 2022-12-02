@@ -233,7 +233,7 @@ To keep things relatively clean, put baby in a [mess-proof bib](https://amzn.to/
 
 
 
-# 7. Sensory boxes: touch, feel, pull
+# 8. Sensory boxes: touch, feel, pull
 
 ![Sensory box](/img/activities-for-babies-bathroom-exploration.jpeg)
 
@@ -263,7 +263,7 @@ Babies love to empty a box full of things. They’ll have as much fun pulling ev
 
 
 
-# 8. Spice it up!
+# 9. Spice it up!
 
 Want a great way to introduce baby into the world of food and enliven their sense of smell?!
 
@@ -279,7 +279,7 @@ I did the same thing with herbs. I talked about the spice or herb, what it smell
 
 Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
 
-# 9. Bake me a cake!
+# 10. Bake me a cake!
 
 Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
@@ -301,7 +301,7 @@ It’s so much fun for him (and me!). But it’s also **teaches him useful thing
 
 Simple recipes and a dose of patience!
 
-# 10. Experiment with rolled oats
+# 11. Experiment with rolled oats
 
 Pour some [rolled oats](https://amzn.to/3fgkJQH) into a bowl and sit with baby on the floor to explore them. This is one of Hayden’s favorite activities!
 
@@ -321,7 +321,7 @@ The older Hayden got, the messier this activity became. So I recommend putting t
 
 Large bowl
 
-# 11. Ice cubes on a baking sheet
+# 12. Ice cubes on a baking sheet
 
 ![activities for babies - touching ice](/img/activities-for-babies-ice-cubes-1.jpeg)
 
@@ -345,7 +345,7 @@ Cookie sheet 
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-# 12. Sink vs float water activity 
+# 13. Sink vs float water activity 
 
 ![activities for babies - sink vs float](/img/activities-for-babies-sink-vs-float.jpeg)
 
@@ -375,7 +375,7 @@ Measuring cups
 
 
 
-# 13. Warm vs cold: ice cubes in warm water
+# 14. Warm vs cold: ice cubes in warm water
 
 Help baby learn about warm versus cold with this simple activity.\
 \
@@ -402,7 +402,7 @@ Ice cubes
 
 
 
-# 14. Lemon soup
+# 15. Lemon soup
 
 ![activities for babies - make lemon soup ](/img/activities-for-babies-make-lemon-soup-1-.jpeg)
 
@@ -432,7 +432,7 @@ Pot
 
 Colander of lemons 
 
-# 15. Ball grab
+# 16. Ball grab
 
 ![activities for babies - ball drop in water](/img/activities-for-babies-ball-drop-in-water.jpeg)
 
@@ -456,7 +456,7 @@ Tip: put towel under basin of water. 
 
 Small basin or storage container
 
-# 16. Play with goo 
+# 17. Play with goo 
 
 ![activities for babies - playing with goo](/img/activities-for-babies-playing-with-goo.jpeg)
 
@@ -486,7 +486,7 @@ Bedsheet 
 
 Water
 
-# 17. Transform everyday things
+# 18. Transform everyday things
 
 This activity was such a hit with Hayden. Once again it’s an activity geared around real world objects, and once again he was completely engrossed!\
 \
