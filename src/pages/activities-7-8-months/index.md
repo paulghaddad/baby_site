@@ -542,7 +542,7 @@ Some lift-the-flap books have flaps that are easier to use than others. 
 
 If baby is just starting out with these books or is having trouble with them, try books by Nosy Crow, which feature felt flaps. Hayden liked the book [Where’s the Dog?](https://amzn.to/3TY6yPc) The flaps are much easier to grab and lift.
 
-Rod Campbell’s books [Oh Dear!](https://amzn.to/3gP1w9v) and [Dear Zoo](https://amzn.to/3SEZOEE) are a great next step. There’s a small indentation for baby to lift the flap up. 
+Rod Campbell’s books [Oh Dear!](https://amzn.to/3gP1w9v) and [Dear Zoo](https://amzn.to/3SEZOEE) are a great next step. There’s a small indentation for baby to stick his finger in order to lift the flap up. 
 
 Then progress to books like, [Where’s Spot?](https://amzn.to/3SHwFbQ) by Eric Hill.
 
