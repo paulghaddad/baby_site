@@ -654,9 +654,9 @@ Fetch is one of Hayden’s favorite games. And it’s a good thing, because it�
 
 ![Baby standing with ball](/img/img_0075.jpeg)
 
-Here’s how it works. First, Hayden pulls himself up to a plastic crate so he’s in the standing position. There’s a ball on top. 
+Here’s how it works. First, Hayden gets a ball on top of a plastic container and pulls himself up into the standing position.
 
-He rolls it off. 
+He then rolls the ball off of the container.
 
 I help him lower himself back down to the seated position -- a key skill to learn. (It’s one thing to pull yourself up, but quite another to get back down!)
 
