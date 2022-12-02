@@ -359,11 +359,21 @@ Choose a variety of blankets, towels, quilts, and even a bedsheet that contain d
 
 ![activities for babies - crawling challenge through blankets to knock down tower](/img/activities-for-babies-crawling-challenge-through-blankets-2.jpeg)
 
-**Baby will love the challenge of traversing new terrain** he has to crawl over to get the toys.
+Baby will love the challenge of traversing new terrain he has to crawl over to get the toys.
+
+![Obstacle course for baby](/img/img_9852.jpeg)
+
+You can even add pillows for baby to navigate over and tunnels for him to navigate through. This will give baby a sensory-rich space to crawl through, over, and around. 
 
 #### Suggested Items:
 
-An assortment of blankets, quilts, towels and even a bedsheet and an assortment of baby’s favorite toys
+Pillows 
+
+Towels
+
+Blankets
+
+Quilts
 
 ## 16. It’s a race!
 
