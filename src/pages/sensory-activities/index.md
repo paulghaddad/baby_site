@@ -267,43 +267,37 @@ Babies love to empty a box full of things. They’ll have as much fun pulling ev
 
 Want a great way to introduce baby into the world of food and enliven their sense of smell?!
 
+**Then, grab some spices and herbs and explore them with baby**.
 
+Hayden loved this activity! Here’s how it works. 
 
-Then, grab some spices and herbs and explore them with baby.
+![Smelling spices](/img/45e7e68d-e72b-4d4d-bf35-fb7fc7d17805.jpeg)
 
+I sat in a chair next to him, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let Hayden smell it. 
 
-
-Hayden loves this activity! Here’s how it works. 
-
-
-
-I sat in a chair next to Hayden, who sat in a high chair, at the kitchen table. I opened up one spice at a time, and smelled it. Then let him smell it. 
-
-
-
-I did the same thing with herbs. I talked about the spice or herb with Hayden, what it smelled like and what dishes we used it in.  
-
-
+I did the same thing with herbs. I talked about the spice or herb, what it smelled like and what dishes we used it in.  
 
 Fresh herbs, like basil, parsley, rosemary, garlic, thyme, and oregano, work great for this activity. So do spices like cinnamon, garlic powder, cumin, and nutmeg. 
-
-
 
 # 9. Bake me a cake!
 
 Hayden loves all things related to the kitchen -- even baking, even though baked goods aren’t part of his diet yet.
 
-Apple spice cake is one of our favorite recipes. He loves being part of the process. 
+Apple spice cake is one of our favorite recipes. **He loves being part of the process**. 
+
+![activities for babies - baking with baby](/img/activities-for-babies-bake-me-a-cake-2.jpeg)
 
 He'll smell each ingredient and touch each utensil (the measuring cups and whisk continue to be his favorites!).
 
-He’ll also help me along the way. I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl.
+He’ll also help me along the way. I’ll fill the measuring cup with flour, for example, and he’ll help me pour it into the bowl. 
 
 After all of the ingredients are together, he’ll help me mix everything together. He’ll hold the whisk and I’ll put my hand on top of his. Round and round and round we go until the batter is smooth. 
 
-It’s so much fun for him (and me!). But it’s also teaches him useful things, like hand-eye coordination and hand dexterity.
+![activities for babies - cooking with mommy](/img/cooking.jpeg)
 
-### Suggested items:
+It’s so much fun for him (and me!). But it’s also **teaches him useful things**, like hand-eye coordination and hand dexterity.
+
+#### Suggested items:
 
 Simple recipes and a dose of patience!
 
@@ -311,39 +305,39 @@ Simple recipes and a dose of patience!
 
 Pour some [rolled oats](https://amzn.to/3fgkJQH) into a bowl and sit with baby on the floor to explore them. This is one of Hayden’s favorite activities!
 
-He loves the texture. He runs his fingers through the oats -- over and over and over again.
-
- 
-
-Iterate on this activity by having a second bowl filled with water. Leave it next to the dry oats. Once baby has had enough of the rolled oats, you can mix some water to give the oats a different texture.
-
- 
-
+He loves the texture. He runs his fingers through the oats -- over and over and over again.\
+\
+Iterate on this activity by having a second bowl filled with water. Leave it next to the dry oats. Once baby has had enough of the rolled oats, you can mix some water to give the oats a different texture.\
+\
 You can add yet another texture to this activity by blending some rolled oats into a powder consistency in advance.
 
+![Activities for babies - playing with rolled oats](/img/activities-for-babies-oats_2.jpeg)
 
+The older Hayden got, the messier this activity became. So I recommend putting the oats in a bowl, and placing it in a plastic bin to contain the mess. You can also put a sheet on the floor in case oats go flying!
 
-### Suggested Items:
+#### Suggested Items:
 
-Rolled oats
+[Rolled oats](https://amzn.to/3fgkJQH)
 
 Large bowl
 
-
-
 # 11. Ice cubes on a baking sheet
+
+![activities for babies - touching ice](/img/activities-for-babies-ice-cubes-1.jpeg)
 
 Put some ice cubes on a cookie sheet or pan and let baby explore. It’s so simple, but so fascinating to baby!
 
 Hayden was hesitant at first with the cold sensation from the ice cubes. Then he got really into it, and loved moving the cubes across the pan because they moved so easily!
 
-This activity is great for hand-eye coordination. The cubes glide quickly across the pan, which makes them hard to grab and pick up.
+![activities for babies - make it glide](/img/activities-for-babies-touching-ice-cube.jpeg)
 
+**This activity is great for hand-eye coordination**. The cubes glide quickly across the pan, which makes them hard to grab and pick up.
 
+![activities for babies - holding ice cube](/img/activities-for-babies-holding-ice-cube.jpeg)
 
 I made my own ice cubes by freezing water in a [freezer tray](https://www.amazon.com/gp/product/B00T6ZG9AA?ie=UTF8&psc=1&linkCode=sl1&tag=learningbabie-20&linkId=a954816a189bde1f12d179e2842703da&language=en_US&ref_=as_li_ss_tl) that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
 
-### Suggested Items:
+#### Suggested Items:
 
 Ice cubes
 
@@ -351,23 +345,27 @@ Cookie sheet 
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-12. Sink vs float water activity 
+# 12. Sink vs float water activity 
 
-Water time outside of bath time is so much fun for baby!
+![activities for babies - sink vs float](/img/activities-for-babies-sink-vs-float.jpeg)
 
- 
-
-I took a rectangular shaped storage bin, filled it with water, and placed a bunch of toys in it. I used this type of bin because the sides were short so Hayden could easily reach into the water. It also provided plenty of space for him to explore. But I’ve also done this activity with small bins. So use what you have!
-
- 
-
+Water time outside of bath time is so much fun for baby!\
+\
+I took a rectangular shaped storage bin, filled it with water, and placed a bunch of toys in it. I used this type of bin because the sides were short so Hayden could easily reach into the water. It also provided plenty of space for him to explore. But I’ve also done this activity with small bins. So use what you have!\
+\
 Some toys sank. Some floated. In part that’s what this activity is all about: learning that some items sink and others float. Baby will also see that familiar objects move differently in water: they’re harder to pick up.
 
-Measuring cups are one of my favorite water time objects to use with Hayden. It’s fun to help him fill a cup with water. Then, pour it out like a waterfall: hear the water, see the splash, put baby’s arm underneath and feel it.
+Measuring cups are one of my favorite water time objects to use with Hayden. It’s fun to help him fill a cup with water. Then, pour it out like a waterfall: hear the water, see the splash, put baby’s arm underneath and feel it. 
 
 So much fun -- for mommy and baby!
 
-### Suggested items:
+#### Suggested items:
+
+Storage bin or small basin
+
+Water-proof toys, teethers, or balls
+
+Measuring cups
 
 Storage bin or small basin
 
@@ -379,19 +377,22 @@ Measuring cups
 
 # 13. Warm vs cold: ice cubes in warm water
 
-Help baby learn about warm versus cold with this simple activity.
-
+Help baby learn about warm versus cold with this simple activity.\
+\
 Start with two small containers or bowls. Fill one with warm water. Fill the other with ice cubes. I made my own ice cubes by freezing water in a baby [ice cube tray](https://amzn.to/3DEMgoE) that I used to hold pureed foods. I found these cubes to be a good size for Hayden to hold and maneuver. 
 
 Let baby touch the contents in each container.
 
+![activities for babies - holding ice cubes](/img/activities-for-babies-ice-cubes-2.jpeg)
+
+\
 Then, help baby pick up an ice cube and plop it into the warm water. Have him touch the dissolving ice cube, and feel the changing temperature of the water.
 
-
+![activities for babies - playing with ice](/img/activities-for-babies-playing-with-ice.jpeg)
 
 I’ve also done this activity by adding a third container: one filled with cool water. Feel the temperature gradations (warm, cool, cold). See what happens when baby drops ice cubes into cool water compared to warm water. 
 
-### Suggested items:
+#### Suggested items:
 
 2 small containers or bowls
 
@@ -403,11 +404,15 @@ Ice cubes
 
 # 14. Lemon soup
 
+![activities for babies - make lemon soup ](/img/activities-for-babies-make-lemon-soup-1-.jpeg)
+
 This activity combines two things Hayden loves: water and kitchen supplies. 
 
 In advance, I set out a towel on the floor (in anticipation of water going everywhere!) with some kitchen supplies on top: measuring cups, spatula, whisk, pot, and a colander of lemons. 
 
 I chose lemons because they’re easy for babies to hold and explore. Limes are another idea to try. 
+
+![activities for babies - grab lemons from colander ](/img/activities-for-babies-make-lemon-soup-12.jpeg)
 
 First we explored the colander of lemons: picking up the lemons, touching them, holding them, counting them. 
 
@@ -415,7 +420,7 @@ Then, we dropped each one into the water (splash!) and stirred them around in th
 
 Fish out the lemons with the measuring cups and do it again to baby’s delight!
 
-### Suggested items:
+#### Suggested items:
 
 Measuring cups
 
@@ -429,19 +434,23 @@ Colander of lemons 
 
 # 15. Ball grab
 
+![activities for babies - ball drop in water](/img/activities-for-babies-ball-drop-in-water.jpeg)
+
 This ball grab activity is not only fun (after all, water is involved!). But it’s also great for hand-eye coordination. 
 
 Fill a small basin with [plastic balls](https://amzn.to/3gOy8A4). Sit down with baby and he’ll try to grab them. The challenge is that these balls are slick in the water and move fast.
 
-Hayden loved to pick up a ball, lay it on the towel, then drop the ball back into the basin of water -- splash! See the ball drop, hear it drop into the water, feel the water splash as a result.
+![activities for babies - pick up ball in water](/img/activities-for-babies-ball-drop-in-water-2.jpeg)
 
-Dropping a single ball was so much fun for Hayden that I took several balls and dropped them into the water all at once. He loved it!
+\
+\
+Hayden loved to pick up a ball, lay it on the towel, then drop the ball back into the basin of water -- splash! **See the ball drop, hear it drop into the water, feel the water splash as a result**.
 
- 
-
+Dropping a single ball was so much fun for Hayden that I took several balls and dropped them into the water all at once. He loved it!\
+\
 Tip: put towel under basin of water. 
 
-### Suggested Items:
+#### Suggested Items:
 
 [Plastic balls](https://amzn.to/3gOy8A4)
 
@@ -449,10 +458,10 @@ Small basin or storage container
 
 # 16. Play with goo 
 
-This two-ingredient recipe -- [cornstarch](https://amzn.to/3U4hxXa) and water -- resulted in a ton of fun for baby and mommy! Plus, the set up is minimal: drizzle some water into a bowl of cornstarch.
+![activities for babies - playing with goo](/img/activities-for-babies-playing-with-goo.jpeg)
 
- 
-
+This two-ingredient recipe -- [cornstarch](https://amzn.to/3U4hxXa) and water -- resulted in a ton of fun for baby and mommy! Plus, the set up is minimal: drizzle some water into a bowl of cornstarch.\
+\
 I put about two cups of cornstarch into a small bowl. Then, I slowly add water until the cornstarch becomes liquid.
 
 The first time we did this activity Hayden dug right in and took handfuls of the mixture. Once he had a fist full of it, however, he seemed unsure of the texture and tried to wipe his hand clean on his shorts. 
@@ -461,41 +470,37 @@ This goo has different textures. And if you haven’t tried it, you should!
 
 Once you add the water, the mixture becomes a liquid. Then, it gets clumpy. And then it turns into a solid. The goo that hit the sheet hardened and looked like a Jackson Pollock painting. 
 
+![activities for babies - playing with goo again](/img/activities-for-babies-playing-with-goo-3.jpeg)
+
 As he explored, goo got on his clothes, arms and legs. He loved it! So I got in on the act and took a fist full of goo and drizzled some on his hands. This resulted in a ton of smiles!
 
 I admit, this activity can get messy. That’s why I recommend putting a sheet down underneath the materials to contain the mess. Then, drop the sheet into the wash after the activity is done (and stick baby in the bath!).
 
-### Suggested Items:
+#### Suggested Items:
 
 [Cornstarch](https://amzn.to/3U4hxXa) 
 
 Small mixing bowl
 
-Sheet 
+Bedsheet 
 
 Water
 
 # 17. Transform everyday things
 
-This activity was such a hit with Hayden. Once again it’s an activity geared around real world objects, and once again he was completely engrossed!
-
-
-
-I took a piece of aluminum foil, parchment paper, paper towel, and a napkin. The process was the same with each.
-
-
-
+This activity was such a hit with Hayden. Once again it’s an activity geared around real world objects, and once again he was completely engrossed!\
+\
+I took a piece of aluminum foil, parchment paper, paper towel, and a napkin. The process was the same with each.\
+\
 I shared each piece of material with Hayden: letting him touch and feel each one. Then, I ripped the material in half. He could hear the rip and see the results: two halves. I showed him how the two halves come together to form a whole. 
 
+![activities for babies - exploring everyday objects](/img/activities-for-babies-exploring-everyday-objects-2.jpeg)
 
-
-I took one half and made a ball with the material. So we had a ball of aluminum foil, a ball of parchment paper, and so on. We explored each ball; slid it across the table; squeezed it; dropped it on the table.
-
- 
-
+I took one half and made a ball with the material. So we had a ball of aluminum foil, a ball of parchment paper, and so on. We explored each ball; slid it across the table; squeezed it; dropped it on the table.\
+\
 Finally, I opened up each ball so Hayden could feel the wrinkled parchment paper, for example, and compared it to the other half that was still smooth.
 
-### Suggested items:
+#### Suggested items:
 
 Aluminum foil
 
@@ -505,29 +510,28 @@ Paper towel
 
 Napkin 
 
-
-
 # 18. Kitchen exploration
 
-Hayden and I have been exploring things in the kitchen for months. When he was about three to four months old, we began exploring items in the kitchen. I’d wash a colander of fruit and veggies and we’d explore them together. We’d also explore kitchen supplies, like measuring cups, as well as a whisk, spatula, and spoon, among others.
+![activities for babies - exploring the kitchen ](/img/activities-for-babies-kitchen-exploration.jpeg)
 
+Hayden and I have been exploring things in the kitchen for months. At this age, we took kitchen exploration to a new level. 
 
+![activities for babies - exploring produce](/img/activities-for-babies-exploring-the-kitchen-4.jpeg)
 
-Once he could sit in his high chair, our explorations got more elaborate.
+I washed a [colander](https://amzn.to/3sysdSm) full of produce containing fruits and veggies like an apple, lemon, carrot, potato, red bell pepper, onion, and squash. We explored each piece.
 
+![activities for babies - exploring the kitchen with mommy](/img/activities-for-babies-exploring-the-kitchen-3.jpeg)
 
-
-As usual, I’d wash a [colander](https://amzn.to/3sysdSm) full of produce containing fruits and veggies like an apple, lemon, carrot, potato, red bell pepper, onion, and squash. We’d explore each piece.
-
-
-
+\
 He’d pick the lemon from the colander, for example, and he’d hold it. I’d talk about it. 
 
 Then, I cut large pieces of each item to engage his senses in a different way. I cut a chunk of the lemon and held it under his nose. Then I let him touch the inside of the lemon. 
 
+![activities for babies - exploring onions](/img/cooking-with-mommy.jpeg)
+
 And so it went. The apple was his favorite, and the onion caught him the most by surprise!
 
-### Suggested items:
+#### Suggested items:
 
 [Colander](https://amzn.to/3sysdSm)
 
