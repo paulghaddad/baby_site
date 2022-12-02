@@ -357,13 +357,11 @@ Toys
 
 Choose a variety of blankets, towels, quilts, and even a bedsheet that contain different shapes, colors, and textures. Then, spread them across the floor. But don’t lay them flat; ensure that there are plenty of lumps and bumps. Spread a handful of toys throughout.
 
-![activities for babies - crawling challenge through blankets to knock down tower](/img/activities-for-babies-crawling-challenge-through-blankets-2.jpeg)
-
 Baby will love the challenge of traversing new terrain he has to crawl over to get the toys.
 
 ![Obstacle course for baby](/img/img_9852.jpeg)
 
-You can even add pillows for baby to navigate over and tunnels for him to navigate through. This will give baby a sensory-rich space to crawl through, over, and around. 
+You can even add pillows for baby to navigate over and tunnels for him to navigate through. This will give baby a sensory-rich space. 
 
 #### Suggested Items:
 
