@@ -644,7 +644,7 @@ Blankets
 
 Quilts
 
-# 29. Fetch
+# 28. Fetch
 
 ![Baby standing ](/img/img_0082.jpeg)
 
@@ -665,7 +665,7 @@ He practices his balance, while sitting, by leaning over to get the ball. Then, 
 Ball\
 Object for baby to pull himself up to
 
-# 30. Speed bumps
+# 29. Speed bumps
 
 ![](/img/img_0089.jpeg)
 
