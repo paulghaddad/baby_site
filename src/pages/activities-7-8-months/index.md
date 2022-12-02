@@ -145,7 +145,7 @@ Cookie sheet 
 
 [Baby food ice cube tray](https://amzn.to/3DEMgoE)
 
-## 7. Laundry basket fun 
+## 7. Laundry basket fun
 
 ![Activities for babies - sitting in a laundry basket ](/img/activities-for-babies-laundry-basket-fun-1-.jpeg)
 
@@ -625,3 +625,63 @@ Add a challenge to this by adding a second bin. That way you have another hiding
 #### Suggested items:
 
 Large plastic bin
+
+# 28. Create an obstacle course
+
+![Obstacle course for baby](/img/img_9852.jpeg)
+
+Give baby a crawling challenge by creating an obstacle course. Put a few pillows on the floor, along with a few towels, blankets, and quilts. You can even make a tunnel for baby to navigate through.
+
+This will give baby a sensory-rich space to crawl through, over, and around. 
+
+Add a tower for baby to knock down, partially hide a toy for baby to find, or turn a plastic container upside down for baby to flip back over. Doing so will motivate him to move through the obstacle course you’ve created, and he’ll have tons of fun in the process!
+
+### Suggested Items:
+
+Pillows 
+
+Towels
+
+Blankets
+
+Quilts
+
+# 29. Fetch
+
+![Baby standing ](/img/img_0082.jpeg)
+
+Fetch is one of Hayden’s favorite games. And it’s a good thing, because it’s teaching him some useful things. 
+
+![Baby standing with ball](/img/img_0075.jpeg)
+
+Here’s how it works. First, Hayden pulls himself up to a plastic crate so he’s in the standing position. There’s a ball on top. 
+
+He rolls it off. 
+
+I help him lower himself back down to the seated position -- a key skill to learn. (It’s one thing to pull yourself up, but quite another to get back down!)
+
+
+
+![Pick up the ball](/img/img_0071.jpeg)
+
+He practices his balance by leaning over to get the ball. Then, he lifts it back up to the crate and the process begins again and again and again. He loves it!
+
+### Suggested Items:
+
+Ball
+
+# 30. Speed bumps
+
+![](/img/img_0089.jpeg)
+
+Hayden loves a crawling challenge, so we do this activity often. 
+
+I take pillows and fold up a few quilts and lay them across the room. Hayden starts at one end and navigates through the bumps until he reaches the other end, where I place a desired toy or a tower for him to knock down. 
+
+### Suggested Items:
+
+Pillows
+
+Blankets
+
+Towels
