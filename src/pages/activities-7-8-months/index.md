@@ -634,16 +634,6 @@ Add a challenge to this by adding a second bin. That way you have another hiding
 
 Large plastic bin
 
-### Suggested Items:
-
-Pillows 
-
-Towels
-
-Blankets
-
-Quilts
-
 # 28. Fetch
 
 ![Baby standing ](/img/img_0082.jpeg)
