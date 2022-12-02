@@ -19,7 +19,7 @@ Then the real fun began. 
 
 
 
-I filled a small bin with water and dropped the sponge in. He moved it around the water. It eventually got saturated and it sank. So he pulled it out and squeezed the water out of the sponge and onto his lap. This repeated for several times (and he got soaked, but it was okay. It was only water!). 
+I filled a small bin with water and dropped the sponge in. He moved it around the water. It eventually got saturated and it sank. So he pulled it out and squeezed the water out of the sponge and onto his lap. This repeated for several times. (He got soaked, but it was okay. It was only water!) 
 
 ![Baby playing with sponge in water.](/img/9bfffaea-232d-4fef-84ac-51d236869ede.jpeg)
 
@@ -47,11 +47,11 @@ This sensory activity was such a hit! I made gelatin for Hayden one evening once
 
 
 
-I used [unflavored gelatine](https://amzn.to/3XL5TmE). Instead of juice, as the recipe suggests, I used water. It’s a snap to make. I’ve done this activity a few times. Once I poured the mixture into a [baby food ice cube tray](https://amzn.to/3ELdYzc). Most recently, I poured it into a glass bowl and let the mixture settle in the refrigerator overnight. 
+I used [unflavored gelatine](https://amzn.to/3XL5TmE). Instead of juice, as the recipe on the box suggests, I used water. It’s a snap to make. 
 
+I’ve done this activity a few times. Once I poured the mixture into a [baby food ice cube tray](https://amzn.to/3ELdYzc). So Hayden had large chunks of gelatin he could grab with his hands. Most recently, I poured it into a glass bowl and let the mixture settle in the refrigerator overnight. The next day, I cut the gelatine into pieces.
 
-
-The next day, I cut the gelatine into pieces and put it into a small aluminum bowl. I sat with Hayden on a large sheet (to contain the mess) and we explored. 
+Either way, exploring is the fun part! 
 
 
 
