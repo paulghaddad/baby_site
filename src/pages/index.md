@@ -10,17 +10,16 @@ mainpitch:
 description: delete
 intro:
   blurbs:
-    - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg
+    - image: /img/1.jpg
       header: Sensory Activites
       url: /sensory-activities
       text: |-
-        11 activities to try, including:
-        *Make tummy time fun 
-        *The many uses of mobiles
-        *Study faces
-        *The great outdoors
-        *Artist baby
-        *Customize your play gym . . . and many more!
+        18 activities to try, including:
+        *Sponge time
+        *Play with goo
+        *Fun with gelatin
+        *Edible Play Dough
+        *Spice It Up . . . and many more!
     - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg
       header: Activities for 0-12 week old babies
       url: /activities-0-12-weeks
