@@ -5,7 +5,6 @@ import { getImage } from "gatsby-plugin-image";
 
 import Layout from "../components/Layout";
 import Features from "../components/Features";
-import BlogRoll from "../components/BlogRoll";
 import FullWidthImage from "../components/FullWidthImage";
 
 // eslint-disable-next-line
@@ -29,19 +28,21 @@ export const IndexPageTemplate = ({
             <div className="columns">
               <div className="column is-10 is-offset-1">
                 <div className="content">
-                  <h2 class="feature-header">Activities for Babies</h2>
+                  <h2 className="feature-header">Activities for Babies</h2>
                   <Features gridItems={intro.blurbs} />
-                  {/* <div className="column is-12"> */}
-                  {/*   <h3 className="has-text-weight-semibold is-size-2"> */}
-                  {/*     Latest stories */}
-                  {/*   </h3> */}
-                  {/*   <BlogRoll /> */}
-                  {/*   <div className="column is-12 has-text-centered"> */}
-                  {/*     <Link className="btn" to="/blog"> */}
-                  {/*       Read more */}
-                  {/*     </Link> */}
-                  {/*   </div> */}
-                  {/* </div> */}
+
+                  <h2 className="feature-header">My Recent Posts</h2>
+
+                  <div className="column is-12">
+                    <section className="section">
+                      <Link to="https://entrepreneurialparent.substack.com/p/the-secret-making-your-own-purees">
+                        <div>
+                          <h3>The Secret Making Your Own Purées for Baby</h3>
+                        </div>
+                      </Link>
+                      <p>I got some blank stares when I told people I was going to make my own purées for Hayden. “That’ll last about a week,” I could hear them thinking. </p>
+                    </section>
+                  </div>
                 </div>
               </div>
             </div>
