@@ -6,12 +6,19 @@ module.exports = {
   plugins: [
     "gatsby-plugin-react-helmet",
     {
-      resolve: "gatsby-plugin-sass",
+      resolve: 'gatsby-plugin-robots-txt',
       options: {
-        sassOptions: {
-          indentedSyntax: true,
+        host: 'https://www.learningbabies.com',
+        policy: [{userAgent: '*', allow: '/'}]
+      }
+    }
+    {
+      resolve: "gatsby-plugin-sass",
+        options: {
+          sassOptions: {
+            indentedSyntax: true,
+          },
         },
-      },
     },
     {
       // keep as first gatsby-source-filesystem plugin for gatsby image support
