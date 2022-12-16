@@ -11,7 +11,7 @@ module.exports = {
         host: 'https://www.learningbabies.com',
         policy: [{userAgent: '*', allow: '/'}]
       }
-    }
+    },
     {
       resolve: "gatsby-plugin-sass",
         options: {

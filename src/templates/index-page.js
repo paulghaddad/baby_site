@@ -35,12 +35,40 @@ export const IndexPageTemplate = ({
 
                   <div className="column is-12">
                     <section className="section">
+                      <Link to="https://entrepreneurialparent.substack.com/p/the-power-of-a-daily-routine-for">
+                        <div>
+                          <h3>The Power of a Daily Routine for Baby</h3>
+                        </div>
+                      </Link>
+                      <p>December 16, 2022</p>
+                      <p>Happy baby. Happy parents. Everyone wins.</p>
+                    </section>
+                    <section className="section">
                       <Link to="https://entrepreneurialparent.substack.com/p/the-secret-making-your-own-purees">
                         <div>
                           <h3>The Secret Making Your Own Purées for Baby</h3>
                         </div>
                       </Link>
+                      <p>December 1, 2022</p>
                       <p>I got some blank stares when I told people I was going to make my own purées for Hayden. “That’ll last about a week,” I could hear them thinking. </p>
+                    </section>
+                    <section className="section">
+                      <Link to="https://entrepreneurialparent.substack.com/p/the-best-toys-for-babies-arent-toys">
+                        <div>
+                          <h3>The Best Toys for Babies Aren't Toys</h3>
+                        </div>
+                      </Link>
+                      <p>November 18, 2022</p>
+                      <p>Keep it simple. Keep it real. And let creativity thrive.</p>
+                    </section>
+                    <section className="section">
+                      <Link to="https://entrepreneurialparent.substack.com/p/babies-need-unstructured-playtime">
+                        <div>
+                          <h3>Babies Need Unstructured Playtime, Too!</h3>
+                        </div>
+                      </Link>
+                      <p>November 18, 2022</p>
+                      <p>Why you should include unstructured playtime for baby</p>
                     </section>
                   </div>
                 </div>
