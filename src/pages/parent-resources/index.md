@@ -5,11 +5,7 @@ title: Resources for Parents
 ---
 One of the best parts of being a parent is how much there is to learn! I’m learning from Hayden each day. And I’m constantly learning how to be a better parent, which covers a variety of topics including: child development, learning, food, and family. 
 
-
-
 Below are a few books I’ve found helpful along the way. 
-
-
 
 I’m always looking for a good book. If you have a recommendation, send me an email: amy@amymhaddad.com.
 
@@ -37,6 +33,14 @@ I’m always looking for a good book. If you have a recommendation, send me an e
 
 [Tinkerlab: A Hands-On Guide for Little Inventors](https://amzn.to/3hXJbrd)
 
+[Montessori: The Science Behind the Genius](https://amzn.to/3FMj3rG) 
+
+[The Danish Way of Parenting](https://amzn.to/3PM871C)
+
+[The Montessori Toddler](https://amzn.to/3jmKkJI)
+
+[Boy Mom](https://amzn.to/3VkK9M9)
+
 ### Food
 
 [French Kids Eat Everything by Karen Le Billon](https://amzn.to/3Xe3xMZ)
@@ -44,8 +48,6 @@ I’m always looking for a good book. If you have a recommendation, send me an e
 [Bébé Gourmet by Jenny Carenco](https://amzn.to/3EKTasI)
 
 [The Big Book of Organic Baby Food by Stephanie Middleberg](https://amzn.to/3ghiZas)
-
-
 
 ### Learning
 
