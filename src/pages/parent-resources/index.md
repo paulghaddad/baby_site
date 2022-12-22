@@ -33,13 +33,15 @@ I’m always looking for a good book. If you have a recommendation, send me an e
 
 [Tinkerlab: A Hands-On Guide for Little Inventors](https://amzn.to/3hXJbrd)
 
-[Montessori: The Science Behind the Genius](https://amzn.to/3FMj3rG) 
+[Montessori: The Science Behind the Genius by Angeline Stoll Lillard](https://amzn.to/3WvpOoA)
 
-[The Danish Way of Parenting](https://amzn.to/3PM871C)
+[The Danish Way of Parenting by Jessica Joelle Alexander](https://amzn.to/3WESWcM)
 
-[The Montessori Toddler](https://amzn.to/3jmKkJI)
+[The Montessori Toddler by Simone Davies](https://amzn.to/3VgKLm4)
 
-[Boy Mom](https://amzn.to/3VkK9M9)
+[Boy Mom by Monica Swanson](https://amzn.to/3v76QJb)
+
+
 
 ### Food
 
