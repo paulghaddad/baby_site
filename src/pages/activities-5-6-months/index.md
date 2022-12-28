@@ -311,7 +311,7 @@ It’s fun to make hand prints, too. You can also use [large art brushes](https:
 
 ![Finger painting](/img/img_9233.jpeg)
 
-I like [this simple recipe](https://rainydaymum.co.uk/baby-play-finger-painting/) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://amzn.to/3sfeKys).
+I like [this simple recipe](https://rainydaymum.co.uk/wprm_print/25155/) to make **homemade finger paint (that's taste safe)**, though I opted for [plant-based food coloring](https://amzn.to/3sfeKys).
 
 Have plenty of paper on the table and the paint in a paper bowl. Place baby in his high chair and let him go at it! 
 
@@ -374,8 +374,6 @@ Help baby develop his senses by creating sensory boxes, using everyday items fro
 It’s fun to create themed sensory boxes. **Just take a small box or basket and fill it with a handful or so of times**. 
 
 ![activities for babies -- kitchen exploration](/img/activities-for-babies-kitchen.jpeg)
-
-
 
 Here are some sensory box ideas to consider:
 
