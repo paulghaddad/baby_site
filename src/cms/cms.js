@@ -8,6 +8,7 @@ import Activities012PagePreview from './preview-templates/Activities012PagePrevi
 import Activities34PagePreview from './preview-templates/Activities34PagePreview'
 import Activities56PagePreview from './preview-templates/Activities56PagePreview'
 import Activities78PagePreview from './preview-templates/Activities78PagePreview'
+import Activities910PagePreview from './preview-templates/Activities910PagePreview'
 import BlogPostPreview from './preview-templates/BlogPostPreview'
 import BooksPagePreview from './preview-templates/BooksPagePreview'
 import ToysPagePreview from './preview-templates/ToysPagePreview'
@@ -27,6 +28,7 @@ CMS.registerPreviewTemplate('activities-0-12-weeks', Activities012PagePreview)
 CMS.registerPreviewTemplate('activities-3-4-months', Activities34PagePreview)
 CMS.registerPreviewTemplate('activities-5-6-months', Activities56PagePreview)
 CMS.registerPreviewTemplate('activities-7-8-months', Activities78PagePreview)
+CMS.registerPreviewTemplate('activities-9-10-months', Activities910PagePreview)
 CMS.registerPreviewTemplate('books', BooksPagePreview)
 CMS.registerPreviewTemplate('toys', ToysPagePreview)
 CMS.registerPreviewTemplate('baby-log', BabyLogPagePreview)
