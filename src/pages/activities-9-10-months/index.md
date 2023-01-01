@@ -83,6 +83,8 @@ Then he’ll lower himself to the floor only to pull himself back up to get anot
 
 ## 4. Let’s color
 
+
+
 This is a great age to pull out some crayons and color with baby! The art itself is pretty basic, but that’s no matter. 
 
 
@@ -368,6 +370,8 @@ I recommend doing this activity on an old blanket or bed sheet. Then, pop it in 
 
 
 ## 18. Make your own lift-the-flap book
+
+![Create your own lift-the-flap book -- learning babies](/img/img_0474-1-.jpeg)
 
 Hayden loves lift-the-flap books. So one evening I made my own for Hayden. 
 
