@@ -517,6 +517,8 @@ I have to say, I was surprised by how much Hayden enjoyed this one! We’ve done
 
 ## 25. Everything’s better on the grass
 
+![Exploring in the grass -- learning babies](/img/img_0480-2-.jpeg)
+
 One of the best sensorial activities is to simply sit on the grass with baby or let him crawl around on it. 
 
 
