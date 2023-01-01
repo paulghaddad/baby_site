@@ -9,6 +9,8 @@ title: Play to Learn
 
 ## 1. Create a nature sensory corner
 
+![Nature sensory corner - learning babies](/img/3e6d3d61-4d54-4a7b-9bdc-2e3688b5bf51.jpeg)
+
 I keep a small nature corner that contains rocks, shells, and (because it’s fall) a few pumpkins. Hayden loves to sit down and toggle among the different items. 
 
 
@@ -31,6 +33,8 @@ Plants
 
 ## 2. Sponge time!
 
+![Exploring a natural sponge - learning babies](/img/8619dacd-cff0-4741-a463-4ede48d628c4-1-.jpeg)
+
 I thought it’d be neat to introduce a natural sea sponge to Hayden. The verdict is in: he loved it! 
 
 
@@ -41,11 +45,11 @@ He held it in his hands and turned it around and around, intrigued by the textur
 
 Then the real fun began. 
 
-
+![Exploring a natural sponge in water - learning babies](/img/a9bd6c29-4d94-4ed9-9b11-ec5831be021d.jpeg)
 
 I filled a small bin with water and dropped the sponge in. He moved it around the water, and eventually it got saturated and sank. 
 
-
+![A sponge filled with water - learning babies](/img/1d61e15c-aa1f-4ba0-ba94-899ac4aa2c3f.jpeg)
 
 So he pulled the sponge out and squeezed water from the sponge onto his lap. This repeated several times. He got soaked. But water makes for an easy clean up!
 
