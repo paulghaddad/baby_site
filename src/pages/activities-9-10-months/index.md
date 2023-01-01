@@ -535,6 +535,8 @@ I also find that Hayden is even more focused when we’re outside. A different c
 
 ## 26. Sensory Bottles
 
+![Sensory bottle -- learning babies](/img/img_0574.jpeg)
+
 I tried introducing sensory bottles to Hayden in the past without success. He wasn’t into them. 
 
 
