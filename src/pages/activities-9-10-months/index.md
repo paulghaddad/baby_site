@@ -213,6 +213,8 @@ I point to the object as I ask my question. Hayden thinks this activity is so mu
 
 ## 15. Fun with gelatin
 
+![Fun with gelatin - learning babies ](/img/img_7919.jpeg)
+
 This sensory activity is such a hit! I made gelatin for Hayden one evening once he went to bed. We explored it the next day and he loved it!
 
 I used [unflavored gelatin](https://amzn.to/3XL5TmE). Instead of juice, as the recipe suggests, I used water. It’s a snap to make. 
