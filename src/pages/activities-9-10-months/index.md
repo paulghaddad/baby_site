@@ -95,11 +95,13 @@ A variety of stacking objects, such as balls, blocks, rattles, or every day item
 
 ## 6. Roadblocks
 
-
+![Knocking down a tower surrounded by boxes, pillows, and blankets - learning babies](/img/img_0114.jpeg)
 
 Here’s a fun way to give baby problem-solving practice. Create a tower of objects to knock down, and surround it by pillows and blankets. Then, set some empty boxes, like shoe boxes, around the pillows and blankets. 
 
 Now baby has to figure out how to get to the tower. 
+
+![Knocking down a tower surrounded by boxes, pillows, and blankets - learning babies](/img/img_0110.jpeg)
 
 Should he move the box? Go around it? Go over it? 
 
