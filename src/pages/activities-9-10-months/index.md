@@ -175,6 +175,8 @@ You can also offer different objects all together. Pull out those newborn rattle
 
 ## 13. Hand puppets
 
+![](/img/img_0213.jpeg)
+
 It took less than two minutes to make a hand puppet for Hayden, and he loves it!
 
 I took one of my husband’s black socks and cut out two eyes and a mouth out of construction paper that I have on hand for art projects. I taped the face on the sock and my puppet was complete. 
