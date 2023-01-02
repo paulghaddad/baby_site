@@ -243,6 +243,8 @@ He gets the idea and we go back and forth for some time.
 
 ## 17. Edible play dough 
 
+![Play dough - learning babies](/img/img_9935.jpeg)
+
 I loved playing with play dough as a kid, and was thrilled when I [came across a recipe](https://www.thelifeofjenniferdawn.com/2010/08/oatmeal-playdough.html) for homemade play dough that’s suitable for babies!
 
 The fun began with Hayden helping me make the play dough, which contains three simple ingredients: oats, water, flour. I filled a measuring cup with oats and Hayden “helped” me dump it into the bowl. 
@@ -283,6 +285,8 @@ But now he likes to make the ball bounce himself and chase after it. Then repeat
 
 ## 20. Fun with tape and other stuff
 
+![Exploring tape - learning babies](/img/img_9995-1-.jpeg)
+
 I’m a huge fan of using simple, everyday items with baby. That’s because you have much more freedom with simple toys and objects; you’re often constrained with complex ones.
 
 So one day I decided to experiment with painter’s tape. 
@@ -300,6 +304,8 @@ Simple. Fun. Educational.
 [Painter’s tape](https://amzn.to/3TLfBTY)
 
 ## 21. Explore differences
+
+![Exploring differences - learning babies](/img/27a99987-1d5e-4565-9df0-4d9e3b22b6f9.jpeg)
 
 Hayden loves to explore things from nature. So I took some rocks and shells and we explored them -- and the differences between them. 
 
@@ -322,6 +328,8 @@ He loves this simple “game” so much that we explored the box of business sup
 It was good practice for Hayden to see some more real world items in the environment where I use them. It also gave him experience exploring objects that aren’t baby friendly with an adult.  
 
 ## 23. Spoons
+
+![Spoons - learning babies](/img/spoons.jpeg)
 
 A spoon is one of Hayden's favorite kitchen items! So one afternoon, I took a variety of spoons -- espresso spoon, baby spoon, soup spoon, slotted spoon, and serving spoon -- and put them on a towel for him to explore. 
 
