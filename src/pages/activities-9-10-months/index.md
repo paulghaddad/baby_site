@@ -119,6 +119,8 @@ A variety of kitchen items: a skillet, saucepan with a lid,  colander, and a fe
 
 ## 8. Catch -- revisited
 
+![Catch with baby - learning babies](/img/96b74384-6fa9-40c3-8fa0-eb2ddcd0e46c.jpeg)
+
 [I wrote about playing catch](https://www.learningbabies.com/activities-5-6-months/#3-catch) with baby when he’s 5-6 months old, when you sit with baby on your lap at the table and roll the ball to him. He has to extend his arm and “catch” the ball. 
 
 Now you can play the same game while baby stands up -- a skill he’s more than willing to practice! 
@@ -133,6 +135,8 @@ Small ball
 
 ## 9. Real life nested objects
 
+![Nesting real world objects - learning babies](/img/img_0467.jpeg)
+
 Nest real life objects. Baby will love it! 
 
 I’d have Hayden watch me as I put a ball on the floor, and covered it with an empty cottage cheese container, followed by an empty plastic bin, followed by a laundry basket. 
@@ -142,6 +146,8 @@ I added the laundry basket once Hayden got the hang of this activity because it�
 But the point is this: use items from your home and nest an object for baby to find. In fact, Hayden enjoys when I use items with different textures, like a small wicker basket. He’ll love pulling off each layer until he finds his coveted prize!
 
 ## 10. Basket of real world objects
+
+![Exploring a basket full of containers - learning babies](/img/img_0188.jpeg)
 
 Instead of a basket of toys in your playroom, try a basket of real world objects: empty water bottles, as well as egg cartons and yogurt, cottage cheese, or nut containers are a place to start. 
 
@@ -153,11 +159,13 @@ These kinds of containers, due to their large size, can also give baby practice 
 
 ## 11. Real life ball drop
 
+![Real life ball drop - learning babies](/img/img_0393.jpeg)
+
 Once baby figures out to stand, he’ll love to practice it. And most babies love to play with a ball. So combine them and make a real life ball drop. 
 
 Start by placing a ball on top of a piece of furniture or something else that baby likes to use to pull himself up with. In Hayden’s case, it’s a plastic storage bin. Then, place a container next to it on the floor. 
 
-Ask baby to drop the ball into the container that’s on the floor. Start with something the size of a plastic bath bin. Once this gets old, use something smaller like an empty cottage cheese or yogurt container. 
+Ask baby to drop the ball into the container that’s on the floor, like a laundry basket or bath bin. Increase the difficulty by changing the ball size or the container.
 
 After the ball is in the container, then help baby lower himself down (if he can’t do this himself yet), lean over, and retrieve the ball. 
 
