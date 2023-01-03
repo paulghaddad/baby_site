@@ -70,20 +70,12 @@ intro:
         *Lemon soup
         *Bake me a cake!
         *Crawling through tunnels . . . and many more!
-    - image: /img/activities-for-babies-crawl-through-a-tunnel-3.jpeg
+    - image: /img/untitled-design-5-.jpg
       header: Activities for 9-10 month old babies
       url: /activities-9-10-months
-      text: |-
-        29 activities to try, including:
-        *Basketball for babies
-        *Go on a scavenger hunt
-        *Experiment with rolled oats 
-        *Knock it down, baby!
-        *Tip it over and pour it out
-        *Warm vs cold: ice cubes in warm water 
-        *Lemon soup
-        *Bake me a cake!
-        *Crawling through tunnels . . . and many more!
+      text: "27 activities to try, including: *climb a mountain; spoons; fun with
+        tape* edible play dough* fun with gelatin* hand puppets* does it
+        balance?* make a tower . . . and many more!"
     - image: /img/activities-for-babies-crawl-through-a-tunnel-2.jpeg
       header: Activities for 11-12 month old babies coming soon
       text: More activities for older babies coming soon!
