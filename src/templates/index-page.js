@@ -34,6 +34,27 @@ export const IndexPageTemplate = ({
                   <h2 className="feature-header">My Recent Posts</h2>
 
                   <div className="column is-12">
+
+                    <section className="section">
+                      <Link to="https://entrepreneurialparent.substack.com/p/8-things-a-baby-will-teach-you">
+                        <div>
+                          <h3>8 Things Your Baby Will Teach You</h3>
+                        </div>
+                      </Link>
+                      <p>December 30, 2022</p>
+                      <p>One of the best parts about being a parent is how much you learn each day.</p>
+                    </section>
+
+                    <section className="section">
+                      <Link to="https://entrepreneurialparent.substack.com/p/how-to-be-productive-and-be-a-parent">
+                        <div>
+                          <h3>How to Be Productive and Be a Parent</h3>
+                        </div>
+                      </Link>
+                      <p>December 21, 2022</p>
+                      <p>6 ways to make your productivity soar as a parent.</p>
+                    </section>
+
                     <section className="section">
                       <Link to="https://entrepreneurialparent.substack.com/p/the-power-of-a-daily-routine-for">
                         <div>
@@ -43,6 +64,7 @@ export const IndexPageTemplate = ({
                       <p>December 16, 2022</p>
                       <p>Happy baby. Happy parents. Everyone wins.</p>
                     </section>
+
                     <section className="section">
                       <Link to="https://entrepreneurialparent.substack.com/p/the-secret-making-your-own-purees">
                         <div>
@@ -52,6 +74,7 @@ export const IndexPageTemplate = ({
                       <p>December 1, 2022</p>
                       <p>I got some blank stares when I told people I was going to make my own purées for Hayden. “That’ll last about a week,” I could hear them thinking. </p>
                     </section>
+
                     <section className="section">
                       <Link to="https://entrepreneurialparent.substack.com/p/the-best-toys-for-babies-arent-toys">
                         <div>
@@ -61,6 +84,7 @@ export const IndexPageTemplate = ({
                       <p>November 18, 2022</p>
                       <p>Keep it simple. Keep it real. And let creativity thrive.</p>
                     </section>
+
                     <section className="section">
                       <Link to="https://entrepreneurialparent.substack.com/p/babies-need-unstructured-playtime">
                         <div>
