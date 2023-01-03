@@ -107,7 +107,7 @@ Should he move the box? Go around it? Go over it? 
 
 There are many different possibilities! 
 
-## 7. Pots n’ Pans
+## 7. Pots and Pans
 
 Pull out some items from your kitchen -- a skillet, saucepan with a lid, colander, and a few kitchen utensils (whisk, measuring cups, and spatula) -- and let baby explore!
 
