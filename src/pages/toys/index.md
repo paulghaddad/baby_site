@@ -9,8 +9,6 @@ What toys should you introduce to baby, when, and where can you buy them?
 
 This is a question I’ve asked myself. So I’ve organized some toys that I’ve used for Hayden by age.  
 
-
-
 ### 0-12 weeks
 
 [beiens High Contrast Baby Flashcards](https://amzn.to/3TlSWxh) 
@@ -68,3 +66,13 @@ Mirror
 [Object Permanence Box](https://www.amazon.com/Montessori-Object-Permanence-Box-Development/dp/B088ZY25MN/ref=sr_1_8?crid=21RZA6COYUNNY&keywords=Ball%2BDrop%2BBox&qid=1663769545&sprefix=ball%2Bdrop%2Bbox%2Caps%2C200&sr=8-8&th=1) (this is similar to the one I have)
 
 [Dancing Alligator Wooden Pull Toy](https://www.bellalunatoys.com/products/plan-toys-dancing-alligator-wooden-pull-toy?_pos=1&_sid=20bddadac&_ss=r)
+
+### 9-10 Months
+
+[Natural Wooden Stacker](https://www.bellalunatoys.com/products/wooden-story-natural-stacker)
+
+[Wooden Rainbow Nesting House](https://www.bellalunatoys.com/products/grimms-wooden-rainbow-nesting-house?_pos=10&_sid=3235870d7&_ss=r)
+
+[Sensory Balls](https://amzn.to/3I0e1ua)
+
+[Musical Instruments](https://www.etsy.com/listing/936991042/montessori-wooden-music-kit-musical?ref=yr_purchases)
