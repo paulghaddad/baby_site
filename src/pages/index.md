@@ -76,7 +76,7 @@ intro:
       text: "27 activities to try, including: *climb a mountain; spoons; fun with
         tape* edible play dough* fun with gelatin* hand puppets* does it
         balance?* make a tower . . . and many more!"
-    - image: /img/activities-for-babies-crawl-through-a-tunnel-2.jpeg
+    - image: /img/img_0799.jpeg
       header: Activities for 11-12 month old babies coming soon
       text: More activities for older babies coming soon!
   heading: Activities for ages 0-8 months (activities for more age groups coming soon!)
