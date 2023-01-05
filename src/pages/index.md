@@ -20,7 +20,7 @@ intro:
         *Fun with gelatin
         *Edible Play Dough
         *Spice It Up . . . and many more!
-    - image: /img/bfa6fbfd-b401-4120-84ab-448ca2f40075.jpeg
+    - image: /img/untitled-design-6-.jpg
       header: Activities for 0-12 week old babies
       url: /activities-0-12-weeks
       text: |-
