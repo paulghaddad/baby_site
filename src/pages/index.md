@@ -56,7 +56,7 @@ intro:
         *Knock down the tower
         *Get to know your fruits and veggies!
         *Fun with measuring cups . . . and many more!
-    - image: /img/activities-for-babies-crawl-through-a-tunnel-3.jpeg
+    - image: /img/untitled-design-9-.jpg
       header: Activities for 7-8 month old babies
       url: /activities-7-8-months
       text: |-
