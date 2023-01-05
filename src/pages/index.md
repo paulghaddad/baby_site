@@ -42,7 +42,7 @@ intro:
         *Get those hands moving!
         *Make time for mirror time
         *Aren't baby animals cute?! . . . and many more!
-    - image: /img/img_9276.jpeg
+    - image: /img/untitled-design-8-.jpg
       header: Activities for 5-6 month old babies
       url: /activities-5-6-months
       text: |-
