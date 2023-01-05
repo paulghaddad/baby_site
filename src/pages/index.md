@@ -31,7 +31,7 @@ intro:
         *The great outdoors
         *Artist baby
         *Customize your play gym . . . and many more!
-    - image: /img/screen-shot-2022-09-16-at-9.38.54-am.png
+    - image: /img/untitled-design-7-.jpg
       header: Activities for 3-4 month old babies
       url: /activities-3-4-months
       text: |
