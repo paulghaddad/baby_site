@@ -11,7 +11,7 @@ I’m Amy, and I’m a writer and programmer turned stay-at-home mom. I asked th
 
 So I created Learning Babies. It provides **simple, easy, and inexpensive activities organized by age**. I incorporate a little bit of everything: art, nature, sensory play, music, reading, and cooking.
 
-Learning Babies goes **back to basics** by using simple toys and real world objects. (A ball and shoe box can be educational and loads of fun!) **Simple activities means endless possibilities. Let creativity thrive!**
+Learning Babies goes **back to basics** by using simple toys and real world objects. (A ball and shoe box can be educational and lots of fun!) **Simple activities means endless possibilities. Let creativity thrive!**
 
 I’ll continue to add content for older babies over time. So sign up for [my newsletter](https://entrepreneurialparent.substack.com/) for updates and practical child development ideas.
 
