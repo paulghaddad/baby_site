@@ -17,6 +17,6 @@ I’ll continue to add content for older babies over time. So sign up for [my ne
 
 ### **Let’s connect!**
 
-Find me on [Facebook](https://www.facebook.com/amyhaddad.LearningBabies/). Or e-mail me at: amy@amymhaddad.com.
+Find me on [Facebook](https://www.facebook.com/amyhaddad.LearningBabies/). Subscribe to my newsletter, [Entrepreneurial Parent](https://entrepreneurialparent.substack.com/?utm_source=substack&utm_medium=web&utm_campaign=substack_profile), to keep up with all things related to parenting. Or e-mail me at: amy@amymhaddad.com.
 
 ![baby smiling](/img/02704a92-c1b3-49b9-878e-fd605b9354ef-1-.jpeg "baby smiling")
